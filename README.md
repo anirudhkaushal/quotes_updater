@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. 
+Quote: I'd rather regret the things I've done than regret the things I haven't done. 
 
-By: Morris West
+By: Lucille Ball
