@@ -1,5 +1,5 @@
-#Latest quote 
+# Latest quote 
 
-Quote: The most beautiful things in the world cannot be seen or even touched. They must be felt with the heart. 
+Quote: It is easier to live through someone else than to become complete yourself. 
 
-By: Helen Keller
+By: Betty Friedan
