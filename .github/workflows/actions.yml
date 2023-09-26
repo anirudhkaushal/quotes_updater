@@ -28,8 +28,8 @@ jobs:
 
       - name: commit and push changes
         run: |
-          git config user.name "GitHub Actions"
-          git config user.email "actions@github.com"
+          git config user.name "anirudhkaushal"
+          git config user.email "anirudhkushal30@gmail.com"
           git add README.md
           git commit -m "random quote updated"
           git push
