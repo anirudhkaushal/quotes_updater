@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is easier to live through someone else than to become complete yourself. 
+Quote: If only wed stop trying to be happy wed have a pretty good time. 
 
-By: Betty Friedan
+By: Edith Wharton
