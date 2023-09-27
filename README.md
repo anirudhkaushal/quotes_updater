@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The simplest things are often the truest. 
+Quote: Our greatest glory is not in never falling, but in rising every time we fall. 
 
-By: Richard Bach
+By: Confucius
