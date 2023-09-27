@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I'd rather regret the things I've done than regret the things I haven't done. 
+Quote: Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world. 
 
-By: Lucille Ball
+By: Eleanor Roosevelt
