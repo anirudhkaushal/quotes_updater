@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world. 
+Quote: What is a weed? A plant whose virtues have not yet been discovered. 
 
-By: Eleanor Roosevelt
+By: Ralph Waldo Emerson
