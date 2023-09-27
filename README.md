@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What is a weed? A plant whose virtues have not yet been discovered. 
+Quote: To be wronged is nothing unless you continue to remember it. 
 
-By: Ralph Waldo Emerson
+By: Confucius
