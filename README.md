@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To be wronged is nothing unless you continue to remember it. 
+Quote: Absence makes the heart grow fonder. 
 
-By: Confucius
+By: Thomas Haynes Bayly
