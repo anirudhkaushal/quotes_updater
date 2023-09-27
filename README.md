@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Absence makes the heart grow fonder. 
+Quote: The simplest things are often the truest. 
 
-By: Thomas Haynes Bayly
+By: Richard Bach
