@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is easier to live through someone else than to become complete yourself. 
+Quote: I'd rather regret the things I've done than regret the things I haven't done. 
 
-By: Betty Friedan
+By: Lucille Ball
