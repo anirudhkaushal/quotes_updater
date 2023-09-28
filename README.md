@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair. 
+Quote: The secret of getting ahead is getting started. 
 
-By: The Buddha
+By: Mark Twain
