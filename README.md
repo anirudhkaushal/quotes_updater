@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You should ignore that person’s impure behavior by way of speech and body, and focus on the fact that they get an openness and clarity of heart from time to time. That’s how to get rid of resentment for that person. 
+Quote: I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair. 
 
 By: The Buddha
