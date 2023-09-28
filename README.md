@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Argue for your limitations, and sure enough they're yours. 
+Quote: Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf. 
 
-By: Richard Bach
+By: Albert Schweitzer
