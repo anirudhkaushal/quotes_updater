@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our greatest glory is not in never falling, but in rising every time we fall. 
+Quote: All great achievements require time. 
 
-By: Confucius
+By: Maya Angelou
