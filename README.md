@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The secret of getting ahead is getting started. 
+Quote: Argue for your limitations, and sure enough they're yours. 
 
-By: Mark Twain
+By: Richard Bach
