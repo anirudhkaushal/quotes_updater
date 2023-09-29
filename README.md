@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I can't listen to that much Wagner. I start getting the urge to conquer Poland. 
+Quote: A man is not old as long as he is seeking something. 
 
-By: Woody Allen
+By: Edmond Rostand
