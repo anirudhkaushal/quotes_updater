@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf. 
+Quote: The spirit, the will to win, and the will to excel, are the things that endure. These qualities are so much more important than the events that occur. 
 
-By: Albert Schweitzer
+By: Vince Lombardi
