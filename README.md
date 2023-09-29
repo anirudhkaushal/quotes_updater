@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. 
+Quote: We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. 
 
-By: Laozi
+By: Henry Ward Beecher
