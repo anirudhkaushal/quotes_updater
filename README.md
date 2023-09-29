@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started. 
+Quote: I can't listen to that much Wagner. I start getting the urge to conquer Poland. 
 
-By: Henry Ward Beecher
+By: Woody Allen
