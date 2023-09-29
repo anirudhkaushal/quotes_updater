@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A man is not old as long as he is seeking something. 
+Quote: If you smile when no one else is around, you really mean it. 
 
-By: Edmond Rostand
+By: Andy Rooney
