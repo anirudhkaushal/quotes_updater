@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Not all those who wander are lost. 
+Quote: Correction does much, but encouragement does more. 
 
-By: J. R. R. Tolkien
+By: Johann Wolfgang von Goethe
