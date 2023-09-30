@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Think big thoughts but relish small pleasures. 
+Quote: Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune. 
 
-By: H. Jackson Brown Jr.
+By: Carl Jung
