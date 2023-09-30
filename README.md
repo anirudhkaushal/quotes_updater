@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you smile when no one else is around, you really mean it. 
+Quote: Sometimes our fate resembles a fruit tree in winter. Who would think that those branches would turn green again and blossom, but we hope it, we know it. 
 
-By: Andy Rooney
+By: Johann Wolfgang von Goethe
