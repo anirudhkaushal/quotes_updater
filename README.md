@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Correction does much, but encouragement does more. 
+Quote: Think big thoughts but relish small pleasures. 
 
-By: Johann Wolfgang von Goethe
+By: H. Jackson Brown Jr.
