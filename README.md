@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I have often regretted my speech, never my silence. 
+Quote: Good advice is always certain to be ignored, but that's no reason not to give it. 
 
-By: Publilius Syrus
+By: Agatha Christie
