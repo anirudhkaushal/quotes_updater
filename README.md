@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A life spent making mistakes is not only more honorable, but more useful than a life spent doing nothing. 
+Quote: The two most powerful warriors are patience and time. 
 
-By: George Bernard Shaw
+By: Leo Tolstoy
