@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Good advice is always certain to be ignored, but that's no reason not to give it. 
+Quote: I find hope in the darkest of days, and focus in the brightest. I do not judge the universe. 
 
-By: Agatha Christie
+By: Dalai Lama
