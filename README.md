@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I find hope in the darkest of days, and focus in the brightest. I do not judge the universe. 
+Quote: Well done is better than well said. 
 
-By: Dalai Lama
+By: Benjamin Franklin
