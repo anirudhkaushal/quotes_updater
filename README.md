@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The two most powerful warriors are patience and time. 
+Quote: I have often regretted my speech, never my silence. 
 
-By: Leo Tolstoy
+By: Publilius Syrus
