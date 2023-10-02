@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I think that we have a great opportunity to impart our wisdom and our knowledge and our experience to this younger generation. It may be different times, but experience transcends time, and wisdom transcends time. 
+Quote: The word philosophy sounds high-minded, but it simply means the love of wisdom. If you love something, you don't just read about it; you hug it, you mess with it, you play with it, you argue with it. 
 
-By: Victoria Osteen
+By: Hugh Jackman
