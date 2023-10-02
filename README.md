@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The more light you allow within you, the brighter the world you live in will be. 
+Quote: Divide each difficulty into as many parts as is feasible and necessary to resolve it. 
 
-By: Shakti Gawain
+By: René Descartes
