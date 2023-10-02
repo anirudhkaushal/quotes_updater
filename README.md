@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Divide each difficulty into as many parts as is feasible and necessary to resolve it. 
+Quote: A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments. 
 
-By: René Descartes
+By: Ezra Stiles
