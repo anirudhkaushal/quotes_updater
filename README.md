@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments. 
+Quote: I think that we have a great opportunity to impart our wisdom and our knowledge and our experience to this younger generation. It may be different times, but experience transcends time, and wisdom transcends time. 
 
-By: Ezra Stiles
+By: Victoria Osteen
