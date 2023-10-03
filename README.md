@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No one is useless in this world who lightens the burdens of another. 
+Quote: Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts. 
 
-By: Charles Dickens
+By: Alan Cohen
