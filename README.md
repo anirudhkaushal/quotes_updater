@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts. 
+Quote: Genuine sincerity opens people's hearts, while manipulation causes them to close. 
 
-By: Alan Cohen
+By: Daisaku Ikeda
