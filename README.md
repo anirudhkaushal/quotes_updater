@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Genuine sincerity opens people's hearts, while manipulation causes them to close. 
+Quote: The best way to pay for a lovely moment is to enjoy it. 
 
-By: Daisaku Ikeda
+By: Richard Bach
