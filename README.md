@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The best way to pay for a lovely moment is to enjoy it. 
+Quote: Price is what you pay. Value is what you get. 
 
-By: Richard Bach
+By: Warren Buffett
