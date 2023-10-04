@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Price is what you pay. Value is what you get. 
+Quote: If you spend too much time thinking about a thing, you'll never get it done. 
 
-By: Warren Buffett
+By: Bruce Lee
