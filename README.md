@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: While we stop to think, we often miss our opportunity. 
+Quote: It is far better to be alone, than to be in bad company. 
 
-By: Publilius Syrus
+By: George Washington
