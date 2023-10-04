@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you spend too much time thinking about a thing, you'll never get it done. 
+Quote: While we stop to think, we often miss our opportunity. 
 
-By: Bruce Lee
+By: Publilius Syrus
