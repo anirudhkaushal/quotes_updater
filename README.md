@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is far better to be alone, than to be in bad company. 
+Quote: Imagination is the highest kite one can fly. 
 
-By: George Washington
+By: Lauren Bacall
