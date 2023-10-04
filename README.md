@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Imagination is the highest kite one can fly. 
+Quote: A ruffled mind makes a restless pillow. 
 
-By: Lauren Bacall
+By: Charlotte Brontë
