@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever. 
+Quote: Genuine love should first be directed at oneself; if we do not love ourselves, how can we love others? 
 
-By: Woody Allen
+By: Dalai Lama
