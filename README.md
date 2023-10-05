@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Before we acquire great power, we must acquire wisdom to use it well. 
+Quote: Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good. 
 
-By: Ralph Waldo Emerson
+By: The Buddha
