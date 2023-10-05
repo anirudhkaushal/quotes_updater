@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A ruffled mind makes a restless pillow. 
+Quote: Strong beliefs win strong men, and then make them stronger. 
 
-By: Charlotte Brontë
+By: Richard Bach
