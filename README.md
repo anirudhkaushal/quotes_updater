@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Strong beliefs win strong men, and then make them stronger. 
+Quote: The greatest danger for most of us is not that our aim is too high, and we miss it, but that it is too low, and we reach it. 
 
-By: Richard Bach
+By: Michelangelo
