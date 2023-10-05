@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The greatest danger for most of us is not that our aim is too high, and we miss it, but that it is too low, and we reach it. 
+Quote: If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever. 
 
-By: Michelangelo
+By: Woody Allen
