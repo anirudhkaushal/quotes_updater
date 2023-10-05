@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Genuine love should first be directed at oneself; if we do not love ourselves, how can we love others? 
+Quote: Before we acquire great power, we must acquire wisdom to use it well. 
 
-By: Dalai Lama
+By: Ralph Waldo Emerson
