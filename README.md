@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good. 
+Quote: Computers are like bikinis. They save people a lot of guesswork. 
 
-By: The Buddha
+By: Sam Ewing
