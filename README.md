@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When fate hands us a lemon, let's try to make lemonade. 
+Quote: People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost. 
 
-By: Dale Carnegie
+By: Dalai Lama
