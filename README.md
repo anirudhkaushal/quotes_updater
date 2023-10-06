@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It has never been my object to record my dreams, just to realize them. 
+Quote: Knowing others is wisdom, knowing yourself is Enlightenment. 
 
-By: Man Ray
+By: Laozi
