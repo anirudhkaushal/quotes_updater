@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Knowing others is wisdom, knowing yourself is Enlightenment. 
+Quote: When fate hands us a lemon, let's try to make lemonade. 
 
-By: Laozi
+By: Dale Carnegie
