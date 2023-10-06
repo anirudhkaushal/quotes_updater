@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Computers are like bikinis. They save people a lot of guesswork. 
+Quote: It has never been my object to record my dreams, just to realize them. 
 
-By: Sam Ewing
+By: Man Ray
