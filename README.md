@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost. 
+Quote: He that respects himself is safe from others; he wears a coat of mail that none can pierce. 
 
-By: Dalai Lama
+By: Henry Wadsworth Longfellow
