@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Rejoicing in our joy, not suffering over our suffering, makes someone a friend. 
+Quote: Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity. 
 
-By: Friedrich Nietzsche
+By: Louis Pasteur
