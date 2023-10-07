@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Every gift from a friend is a wish for your happiness. 
+Quote: Logic is the beginning of wisdom, not the end. 
 
-By: Richard Bach
+By: Leonard Nimoy
