@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He that respects himself is safe from others; he wears a coat of mail that none can pierce. 
+Quote: Every gift from a friend is a wish for your happiness. 
 
-By: Henry Wadsworth Longfellow
+By: Richard Bach
