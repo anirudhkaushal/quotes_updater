@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Logic is the beginning of wisdom, not the end. 
+Quote: Rejoicing in our joy, not suffering over our suffering, makes someone a friend. 
 
-By: Leonard Nimoy
+By: Friedrich Nietzsche
