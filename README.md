@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity. 
+Quote: Trust yourself. You know more than you think you do. 
 
-By: Louis Pasteur
+By: Benjamin Spock
