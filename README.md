@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Trust yourself. You know more than you think you do. 
+Quote: We've got to have a dream if we are going to make a dream come true. 
 
-By: Benjamin Spock
+By: Walt Disney
