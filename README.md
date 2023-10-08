@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Those who dream by day are cognizant of many things which escape those who dream only by night. 
+Quote: Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts. 
 
-By: Edgar Allan Poe
+By: Dan Gable
