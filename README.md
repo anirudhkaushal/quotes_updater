@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts. 
+Quote: Friendship is certainly the finest balm for the pangs of disappointed love. 
 
-By: Dan Gable
+By: Jane Austen
