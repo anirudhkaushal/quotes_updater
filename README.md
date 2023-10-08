@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We've got to have a dream if we are going to make a dream come true. 
+Quote: Adopt the pace of nature: her secret is patience. 
 
-By: Walt Disney
+By: Ralph Waldo Emerson
