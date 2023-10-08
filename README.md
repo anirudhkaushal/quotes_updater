@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship is certainly the finest balm for the pangs of disappointed love. 
+Quote: Genius unrefined resembles a flash of lightning, but wisdom is like the sun. 
 
-By: Jane Austen
+By: Franz Grillparzer
