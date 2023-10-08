@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Adopt the pace of nature: her secret is patience. 
+Quote: Better to have loved and lost, than to have never loved at all. 
 
-By: Ralph Waldo Emerson
+By: Augustine of Hippo
