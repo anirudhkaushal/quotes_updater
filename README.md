@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Better to have loved and lost, than to have never loved at all. 
+Quote: Those who dream by day are cognizant of many things which escape those who dream only by night. 
 
-By: Augustine of Hippo
+By: Edgar Allan Poe
