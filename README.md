@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing. 
+Quote: A man cannot be said to succeed in this life who does not satisfy one friend. 
 
-By: Abraham Lincoln
+By: Henry David Thoreau
