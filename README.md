@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A man cannot be said to succeed in this life who does not satisfy one friend. 
+Quote: Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion? 
 
-By: Henry David Thoreau
+By: Friedrich Nietzsche
