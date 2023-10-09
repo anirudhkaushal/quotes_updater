@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion? 
+Quote: If you don't know where you are going, any road will get you there. 
 
-By: Friedrich Nietzsche
+By: Lewis Carroll
