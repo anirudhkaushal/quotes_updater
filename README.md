@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A business that makes nothing but money is a poor business. 
+Quote: Results! Why, man, I have gotten a lot of results. I know several thousand things that won't work. 
 
-By: Henry Ford
+By: Thomas Edison
