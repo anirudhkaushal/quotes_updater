@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you don't know where you are going, any road will get you there. 
+Quote: A business that makes nothing but money is a poor business. 
 
-By: Lewis Carroll
+By: Henry Ford
