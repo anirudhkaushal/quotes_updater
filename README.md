@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The biggest adventure you can ever take is to live the life of your dreams. 
+Quote: If you cannot do great things, do small things in a great way. 
 
-By: Oprah Winfrey
+By: Napoleon Hill
