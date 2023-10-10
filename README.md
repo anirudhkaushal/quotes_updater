@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Results! Why, man, I have gotten a lot of results. I know several thousand things that won't work. 
+Quote: Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself. 
 
-By: Thomas Edison
+By: Henry James
