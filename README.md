@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself. 
+Quote: Through perseverance many people win success out of what seemed destined to be certain failure. 
 
-By: Henry James
+By: Benjamin Disraeli
