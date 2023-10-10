@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Through perseverance many people win success out of what seemed destined to be certain failure. 
+Quote: The biggest adventure you can ever take is to live the life of your dreams. 
 
-By: Benjamin Disraeli
+By: Oprah Winfrey
