@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. 
+Quote: Serious sport has nothing to do with fair play. It is bound up with hatred, jealousy, boastfulness, disregard of all rules and sadistic pleasure in witnessing violence. In other words, it is war minus the shooting. 
 
-By: Laozi
+By: George Orwell
