@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Belief consists in accepting the affirmations of the soul; Unbelief, in denying them. 
+Quote: If you only have a hammer, you tend to see every problem as a nail. 
 
-By: Ralph Waldo Emerson
+By: Abraham Maslow
