@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Serious sport has nothing to do with fair play. It is bound up with hatred, jealousy, boastfulness, disregard of all rules and sadistic pleasure in witnessing violence. In other words, it is war minus the shooting. 
+Quote: Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together. 
 
-By: George Orwell
+By: Mariella Frostrup
