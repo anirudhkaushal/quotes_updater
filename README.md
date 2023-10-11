@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you only have a hammer, you tend to see every problem as a nail. 
+Quote: Your talent is God's gift to you. What you do with it is your gift back to God. 
 
-By: Abraham Maslow
+By: Leo Buscaglia
