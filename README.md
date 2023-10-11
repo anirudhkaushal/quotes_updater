@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All is flux; nothing stays still. 
+Quote: Life shrinks or expands in proportion to one's courage. 
 
-By: Heraclitus
+By: Anaïs Nin
