@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life shrinks or expands in proportion to one's courage. 
+Quote: Belief consists in accepting the affirmations of the soul; Unbelief, in denying them. 
 
-By: Anaïs Nin
+By: Ralph Waldo Emerson
