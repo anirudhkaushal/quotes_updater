@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. 
+Quote: Nature takes away any faculty that is not used. 
 
-By: Helen Keller
+By: William Inge
