@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Your talent is God's gift to you. What you do with it is your gift back to God. 
+Quote: The only time to buy these is on a day with no 'y' in it. 
 
-By: Leo Buscaglia
+By: Warren Buffett
