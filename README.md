@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom is the power to put our time and our knowledge to the proper use. 
+Quote: I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability. 
 
-By: Thomas J. Watson
+By: Confucius
