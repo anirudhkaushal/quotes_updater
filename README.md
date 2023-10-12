@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The only time to buy these is on a day with no 'y' in it. 
+Quote: Wisdom is the power to put our time and our knowledge to the proper use. 
 
-By: Warren Buffett
+By: Thomas J. Watson
