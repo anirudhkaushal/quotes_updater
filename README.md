@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you come to the end of your rope, tie a knot and hang on. 
+Quote: Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. 
 
-By: Franklin D. Roosevelt
+By: Helen Keller
