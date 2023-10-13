@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To choose what is difficult all one's days, as if it were easy, that is faith. 
+Quote: Wherever a man may happen to turn, whatever a man may undertake, he will always end up by returning to the path which nature has marked out for him. 
 
-By: W. H. Auden
+By: Johann Wolfgang von Goethe
