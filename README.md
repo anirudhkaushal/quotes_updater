@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Yesterday's home runs don't win today's games. 
+Quote: To choose what is difficult all one's days, as if it were easy, that is faith. 
 
-By: Babe Ruth
+By: W. H. Auden
