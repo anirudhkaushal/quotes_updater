@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Choose a job you love, and you will never have to work a day in your life. 
+Quote: Yesterday's home runs don't win today's games. 
 
-By: Confucius
+By: Babe Ruth
