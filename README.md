@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship is always a sweet responsibility, never an opportunity. 
+Quote: Setting goals is the first step in turning the invisible into the visible. 
 
-By: Kahlil Gibran
+By: Tony Robbins
