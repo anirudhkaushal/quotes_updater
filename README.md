@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We are made wise not by the recollection of our past, but by the responsibility for our future. 
+Quote: Happiness resides not in possessions, and not in gold, happiness dwells in the soul. 
 
-By: Bernard Shaw
+By: Democritus
