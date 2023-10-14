@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We read the world wrong and say that it deceives us. 
+Quote: There is no fear for one whose mind is not filled with desires. 
 
-By: Rabindranath Tagore
+By: The Buddha
