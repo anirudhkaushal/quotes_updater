@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know. 
+Quote: We are made wise not by the recollection of our past, but by the responsibility for our future. 
 
-By: William Saroyan
+By: Bernard Shaw
