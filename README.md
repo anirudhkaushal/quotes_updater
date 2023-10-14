@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wherever a man may happen to turn, whatever a man may undertake, he will always end up by returning to the path which nature has marked out for him. 
+Quote: We read the world wrong and say that it deceives us. 
 
-By: Johann Wolfgang von Goethe
+By: Rabindranath Tagore
