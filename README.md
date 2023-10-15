@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Happiness resides not in possessions, and not in gold, happiness dwells in the soul. 
+Quote: Music in the soul can be heard by the universe. 
 
-By: Democritus
+By: Laozi
