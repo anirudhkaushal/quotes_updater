@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Fear grows in darkness; if you think there's a bogeyman around, turn on the light. 
+Quote: Think for yourselves and let others enjoy the privilege to do so too. 
 
-By: Dorothy Thompson
+By: Voltaire
