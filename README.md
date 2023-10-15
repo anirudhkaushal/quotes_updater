@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Think for yourselves and let others enjoy the privilege to do so too. 
+Quote: I never teach my pupils. I only attempt to provide the conditions in which they can learn. 
 
-By: Voltaire
+By: Albert Einstein
