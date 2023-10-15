@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Music in the soul can be heard by the universe. 
+Quote: The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition. 
 
-By: Laozi
+By: Honoré de Balzac
