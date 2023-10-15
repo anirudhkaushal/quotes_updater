@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition. 
+Quote: Fear grows in darkness; if you think there's a bogeyman around, turn on the light. 
 
-By: Honoré de Balzac
+By: Dorothy Thompson
