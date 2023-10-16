@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The fall of dropping water wears away the Stone. 
+Quote: We cannot be more sensitive to pleasure without being more sensitive to pain. 
 
-By: Lucretius
+By: Alan Watts
