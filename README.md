@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We cannot be more sensitive to pleasure without being more sensitive to pain. 
+Quote: If there is no struggle, there is no progress. 
 
-By: Alan Watts
+By: Frederick Douglass
