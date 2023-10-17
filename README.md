@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom is oftentimes nearer when we stoop than when we soar. 
+Quote: There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living. 
 
-By: William Wordsworth
+By: Nelson Mandela
