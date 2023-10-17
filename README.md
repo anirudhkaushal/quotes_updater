@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If with a pure mind a person speaks or acts, happiness follows them like a never-departing shadow. 
+Quote: Friendship often ends in love, but love in friendship - never. 
 
-By: The Buddha
+By: Albert Camus
