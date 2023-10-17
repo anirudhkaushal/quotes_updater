@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If there is no struggle, there is no progress. 
+Quote: If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him. 
 
-By: Frederick Douglass
+By: Ralph Waldo Emerson
