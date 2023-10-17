@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living. 
+Quote: If with a pure mind a person speaks or acts, happiness follows them like a never-departing shadow. 
 
-By: Nelson Mandela
+By: The Buddha
