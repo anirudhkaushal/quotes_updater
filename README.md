@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him. 
+Quote: Wisdom is oftentimes nearer when we stoop than when we soar. 
 
-By: Ralph Waldo Emerson
+By: William Wordsworth
