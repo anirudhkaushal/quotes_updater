@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Technological progress has merely provided us with more efficient means for going backwards. 
+Quote: It always seems impossible until it's done. 
 
-By: Aldous Huxley
+By: Nelson Mandela
