@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All action results from thought, so it is thoughts that matter. 
+Quote: God has given you one face, and you make yourself another. 
 
-By: Sai Baba
+By: William Shakespeare
