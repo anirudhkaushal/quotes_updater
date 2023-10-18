@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: God has given you one face, and you make yourself another. 
+Quote: It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err. 
 
-By: William Shakespeare
+By: Mahatma Gandhi
