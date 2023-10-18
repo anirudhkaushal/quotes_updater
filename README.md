@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody. 
+Quote: All action results from thought, so it is thoughts that matter. 
 
-By: Henry Wadsworth Longfellow
+By: Sai Baba
