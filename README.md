@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err. 
+Quote: But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint. 
 
-By: Mahatma Gandhi
+By: Edmund Burke
