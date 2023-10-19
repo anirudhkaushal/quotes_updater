@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I do not know the American gentleman, god forgive me for putting two such words together. 
+Quote: If one does not know to which port is sailing, no wind is favorable. 
 
-By: Charles Dickens
+By: Seneca the Younger
