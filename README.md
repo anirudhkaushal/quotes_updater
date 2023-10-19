@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It always seems impossible until it's done. 
+Quote: If you only have a hammer, you tend to see every problem as a nail. 
 
-By: Nelson Mandela
+By: Abraham Maslow
