@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If one does not know to which port is sailing, no wind is favorable. 
+Quote: Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose. 
 
-By: Seneca the Younger
+By: Eknath Easwaran
