@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Experience is simply the name we give our mistakes. 
+Quote: I do not know the American gentleman, god forgive me for putting two such words together. 
 
-By: Oscar Wilde
+By: Charles Dickens
