@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose. 
+Quote: If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him. 
 
-By: Eknath Easwaran
+By: Ralph Waldo Emerson
