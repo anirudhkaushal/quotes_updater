@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you only have a hammer, you tend to see every problem as a nail. 
+Quote: Experience is simply the name we give our mistakes. 
 
-By: Abraham Maslow
+By: Oscar Wilde
