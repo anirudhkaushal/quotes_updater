@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you do what you've always done, you'll get what you've always gotten. 
+Quote: If you do not change direction, you may end up where you are heading. 
 
-By: Tony Robbins
+By: Laozi
