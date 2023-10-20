@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you do not change direction, you may end up where you are heading. 
+Quote: He who lives in harmony with himself lives in harmony with the world. 
 
-By: Laozi
+By: Marcus Aurelius
