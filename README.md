@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I'd rather regret the things that I have done than the things that I have not done. 
+Quote: If you do what you've always done, you'll get what you've always gotten. 
 
-By: Lucille Ball
+By: Tony Robbins
