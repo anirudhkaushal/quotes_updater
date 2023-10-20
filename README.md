@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He who lives in harmony with himself lives in harmony with the world. 
+Quote: The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind. 
 
-By: Marcus Aurelius
+By: Kahlil Gibran
