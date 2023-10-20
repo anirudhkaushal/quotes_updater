@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind. 
+Quote: One's friends are that part of the human race with which one can be human. 
 
-By: Kahlil Gibran
+By: George Santayana
