@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him. 
+Quote: I'd rather regret the things that I have done than the things that I have not done. 
 
-By: Ralph Waldo Emerson
+By: Lucille Ball
