@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. 
+Quote: Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning. 
 
-By: Charles Dickens
+By: Winston Churchill
