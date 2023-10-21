@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Every man is a volume if you know how to read him. 
+Quote: Genius is one percent inspiration and ninety-nine percent perspiration. 
 
-By: William Ellery Channing
+By: Thomas Edison
