@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: For everything that lives is holy, life delights in life. 
+Quote: Most of the shadows of life are caused by standing in our own sunshine. 
 
-By: William Blake
+By: Ralph Waldo Emerson
