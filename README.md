@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One's friends are that part of the human race with which one can be human. 
+Quote: For everything that lives is holy, life delights in life. 
 
-By: George Santayana
+By: William Blake
