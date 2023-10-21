@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Most of the shadows of life are caused by standing in our own sunshine. 
+Quote: Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. 
 
-By: Ralph Waldo Emerson
+By: Charles Dickens
