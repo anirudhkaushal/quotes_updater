@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning. 
+Quote: Every man is a volume if you know how to read him. 
 
-By: Winston Churchill
+By: William Ellery Channing
