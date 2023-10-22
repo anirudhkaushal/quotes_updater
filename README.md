@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Fame usually comes to those who are thinking about something else. 
+Quote: The road of excess leads to the palace of wisdom. 
 
-By: Oliver Wendell Holmes Jr.
+By: William Blake
