@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To me, it doesn't matter how good you are. Sport is all about playing and competing. Whatever you do in cricket and in sport, enjoy it, be positive and try to win. 
+Quote: Beauty is not in the face; beauty is a light in the heart. 
 
-By: Ian Botham
+By: Kahlil Gibran
