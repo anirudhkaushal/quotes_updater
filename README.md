@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Beauty is not in the face; beauty is a light in the heart. 
+Quote: Creativity comes from trust. Trust your instincts. And never hope more than you work. 
 
-By: Kahlil Gibran
+By: Rita Mae Brown
