@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Creativity comes from trust. Trust your instincts. And never hope more than you work. 
+Quote: Fame usually comes to those who are thinking about something else. 
 
-By: Rita Mae Brown
+By: Oliver Wendell Holmes Jr.
