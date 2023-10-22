@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The road of excess leads to the palace of wisdom. 
+Quote: The extreme limit of wisdom, that's what the public calls madness. 
 
-By: William Blake
+By: Jean Cocteau
