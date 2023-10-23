@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Things that were hard to bear are sweet to remember. 
+Quote: Many men go fishing all of their lives without knowing that it is not fish they are after. 
 
-By: Seneca the Younger
+By: Henry David Thoreau
