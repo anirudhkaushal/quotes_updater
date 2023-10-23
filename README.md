@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Commitment is an act, not a word. 
+Quote: Things that were hard to bear are sweet to remember. 
 
-By: Jean-Paul Sartre
+By: Seneca the Younger
