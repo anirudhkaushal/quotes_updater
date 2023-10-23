@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Go for it now. The future is promised to no one. 
+Quote: Commitment is an act, not a word. 
 
-By: Wayne Dyer
+By: Jean-Paul Sartre
