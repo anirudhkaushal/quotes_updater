@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Many men go fishing all of their lives without knowing that it is not fish they are after. 
+Quote: Don't ruin the present with the ruined past. 
 
-By: Henry David Thoreau
+By: Ellen Gilchrist
