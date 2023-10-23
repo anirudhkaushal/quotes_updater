@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The extreme limit of wisdom, that's what the public calls madness. 
+Quote: Go for it now. The future is promised to no one. 
 
-By: Jean Cocteau
+By: Wayne Dyer
