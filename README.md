@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Don't ruin the present with the ruined past. 
+Quote: If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. 
 
-By: Ellen Gilchrist
+By: Rachel Carson
