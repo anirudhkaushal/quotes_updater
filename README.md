@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Always be a first-rate version of yourself, instead of a second-rate version of somebody else. 
+Quote: If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. 
 
-By: Judy Garland
+By: Barack Obama
