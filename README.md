@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another. 
+Quote: Always be a first-rate version of yourself, instead of a second-rate version of somebody else. 
 
-By: Eustace Budgell
+By: Judy Garland
