@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Let yourself be silently drawn by the stronger pull of what you really love. 
+Quote: The truest greatness lies in being kind, the truest wisdom in a happy mind. 
 
-By: Rumi
+By: Ella Wheeler Wilcox
