@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is easier to live through someone else than to become complete yourself. 
+Quote: Let yourself be silently drawn by the stronger pull of what you really love. 
 
-By: Betty Friedan
+By: Rumi
