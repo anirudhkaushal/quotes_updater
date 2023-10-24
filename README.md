@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The truest greatness lies in being kind, the truest wisdom in a happy mind. 
+Quote: Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another. 
 
-By: Ella Wheeler Wilcox
+By: Eustace Budgell
