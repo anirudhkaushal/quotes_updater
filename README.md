@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. 
+Quote: It is easier to live through someone else than to become complete yourself. 
 
-By: Rachel Carson
+By: Betty Friedan
