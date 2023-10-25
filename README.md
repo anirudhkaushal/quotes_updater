@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both. 
+Quote: The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts. 
 
-By: Fawn M. Brodie
+By: Booker T. Washington
