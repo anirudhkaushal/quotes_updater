@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The key to growth is the introduction of higher dimensions of consciousness into our awareness. 
+Quote: The Superior Man is aware of Righteousness, the inferior man is aware of advantage. 
 
-By: Laozi
+By: Confucius
