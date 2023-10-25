@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The Superior Man is aware of Righteousness, the inferior man is aware of advantage. 
+Quote: A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both. 
 
-By: Confucius
+By: Fawn M. Brodie
