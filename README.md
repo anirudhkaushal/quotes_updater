@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good. 
+Quote: Love is blind; friendship closes its eyes. 
 
-By: The Buddha
+By: Friedrich Nietzsche
