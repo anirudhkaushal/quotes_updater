@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Just because something doesn't do what you planned it to do doesn't mean it's useless. 
+Quote: Be slow to fall into friendship; but when thou art in, continue firm and constant. 
 
-By: Thomas Edison
+By: Isocrates
