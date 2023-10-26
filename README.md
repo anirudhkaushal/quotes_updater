@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Do not go where the path may lead, go instead where there is no path and leave a trail. 
+Quote: Just because something doesn't do what you planned it to do doesn't mean it's useless. 
 
-By: Ralph Waldo Emerson
+By: Thomas Edison
