@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No garden is without its weeds. 
+Quote: Do not go where the path may lead, go instead where there is no path and leave a trail. 
 
-By: Thomas Fuller
+By: Ralph Waldo Emerson
