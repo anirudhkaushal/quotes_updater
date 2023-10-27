@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid. 
+Quote: Take time to deliberate, but when the time for action has arrived, stop thinking and go in. 
 
-By: Audre Lorde
+By: Napoleon
