@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Eternal nothingness is fine if you happen to be dressed for it. 
+Quote: A wise man will make more opportunities than he finds. 
 
-By: Woody Allen
+By: Francis Bacon
