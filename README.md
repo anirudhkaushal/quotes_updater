@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He who lives in harmony with himself lives in harmony with the universe. 
+Quote: When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid. 
 
-By: Marcus Aurelius
+By: Audre Lorde
