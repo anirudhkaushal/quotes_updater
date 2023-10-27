@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A wise man will make more opportunities than he finds. 
+Quote: A friend is someone who gives you total freedom to be yourself. 
 
-By: Francis Bacon
+By: Jim Morrison
