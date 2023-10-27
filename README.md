@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Be slow to fall into friendship; but when thou art in, continue firm and constant. 
+Quote: He who lives in harmony with himself lives in harmony with the universe. 
 
-By: Isocrates
+By: Marcus Aurelius
