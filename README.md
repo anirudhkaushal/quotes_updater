@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: By living deeply in the present moment we can understand the past better and we can prepare for a better future. 
+Quote: They blame those who remain silent, they blame those who speak much, they blame those who speak in moderation. There is none in the world who is not blamed. 
 
-By: Thích Nhất Hạnh
+By: The Buddha
