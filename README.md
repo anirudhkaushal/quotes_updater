@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A friend is someone who gives you total freedom to be yourself. 
+Quote: We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy. 
 
-By: Jim Morrison
+By: Arthur Ashe
