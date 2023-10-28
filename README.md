@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is nothing impossible to him who will try. 
+Quote: I'm not afraid of storms, for I'm learning how to sail my ship. 
 
-By: Alexander the Great
+By: Louisa May Alcott
