@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I'm not afraid of storms, for I'm learning how to sail my ship. 
+Quote: The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails. 
 
-By: Louisa May Alcott
+By: William Arthur Ward
