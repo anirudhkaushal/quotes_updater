@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy. 
+Quote: By living deeply in the present moment we can understand the past better and we can prepare for a better future. 
 
-By: Arthur Ashe
+By: Thích Nhất Hạnh
