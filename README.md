@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Just as much as we see in others, we have in ourselves. 
+Quote: Sooner or later, those who win are those who think they can. 
 
-By: William Hazlitt
+By: Richard Bach
