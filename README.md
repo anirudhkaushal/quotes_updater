@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The greatest mistake you can make in life is to be continually fearing you will make one. 
+Quote: All men have a sweetness in their life. That is what helps them go on. It is towards that they turn when they feel too worn out. 
 
-By: Elbert Hubbard
+By: Albert Camus
