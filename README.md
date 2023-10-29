@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Sooner or later, those who win are those who think they can. 
+Quote: The greatest mistake you can make in life is to be continually fearing you will make one. 
 
-By: Richard Bach
+By: Elbert Hubbard
