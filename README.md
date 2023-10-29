@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Quick decisions are unsafe decisions. 
+Quote: Just as much as we see in others, we have in ourselves. 
 
-By: Sophocles
+By: William Hazlitt
