@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Time you enjoyed wasting was not wasted. 
+Quote: He can who thinks he can, and he can't who thinks he can't. This is an inexorable, indisputable law. 
 
-By: John Lennon
+By: Pablo Picasso
