@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I never worry about action, but only inaction. 
+Quote: By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning. 
 
-By: Winston Churchill
+By: Laozi
