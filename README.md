@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk. 
+Quote: I have learned that friendship isn't about who you've known the longest, it's about who came and never left your side. 
 
-By: Doug Larson
+By: Yolanda Hadid
