@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning. 
+Quote: Time you enjoyed wasting was not wasted. 
 
-By: Laozi
+By: John Lennon
