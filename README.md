@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He can who thinks he can, and he can't who thinks he can't. This is an inexorable, indisputable law. 
+Quote: Adversity causes some men to break, others to break records. 
 
-By: Pablo Picasso
+By: William Arthur Ward
