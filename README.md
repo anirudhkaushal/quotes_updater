@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: My friends are my estate. 
+Quote: To acquire knowledge, one must study; but to acquire wisdom, one must observe. 
 
-By: Emily Dickinson
+By: Marilyn vos Savant
