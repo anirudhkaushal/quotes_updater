@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A creative man is motivated by the desire to achieve, not by the desire to beat others. 
+Quote: The lure of the distant and the difficult is deceptive. The great opportunity is where you are. 
 
-By: Ayn Rand
+By: John Burroughs
