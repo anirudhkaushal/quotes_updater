@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I have learned that friendship isn't about who you've known the longest, it's about who came and never left your side. 
+Quote: A creative man is motivated by the desire to achieve, not by the desire to beat others. 
 
-By: Yolanda Hadid
+By: Ayn Rand
