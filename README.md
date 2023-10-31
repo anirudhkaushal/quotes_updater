@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Technology… the knack of so arranging the world that we don't have to experience it. 
+Quote: A friend is someone who gives you total freedom to be yourself. 
 
-By: Max Frisch
+By: Jim Morrison
