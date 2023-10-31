@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The lure of the distant and the difficult is deceptive. The great opportunity is where you are. 
+Quote: My friends are my estate. 
 
-By: John Burroughs
+By: Emily Dickinson
