@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is no greater harm than that of time wasted. 
+Quote: Simply put, you believer that things or people make you unhappy, but this is not accurate. You make yourself unhappy. 
 
-By: Michelangelo
+By: Wayne Dyer
