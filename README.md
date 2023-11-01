@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A friend is someone who gives you total freedom to be yourself. 
+Quote: All is flux; nothing stays still. 
 
-By: Jim Morrison
+By: Heraclitus
