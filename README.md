@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The greater our knowledge increases the more our ignorance unfolds. 
+Quote: No snowflake in an avalanche ever feels responsible. 
 
-By: John F. Kennedy
+By: Voltaire
