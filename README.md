@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: On every thorn, delightful wisdom grows, in every rill a sweet instruction flows. 
+Quote: The greater our knowledge increases the more our ignorance unfolds. 
 
-By: Edward Young
+By: John F. Kennedy
