@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you surrender to the wind, you can ride it. 
+Quote: On every thorn, delightful wisdom grows, in every rill a sweet instruction flows. 
 
-By: Toni Morrison
+By: Edward Young
