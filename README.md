@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Simply put, you believer that things or people make you unhappy, but this is not accurate. You make yourself unhappy. 
+Quote: I have learned that to be with those I like is enough. 
 
-By: Wayne Dyer
+By: Walt Whitman
