@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character. 
+Quote: You are that vast thing that you see far, far off with great telescopes. 
 
-By: Margaret Chase Smith
+By: Alan Watts
