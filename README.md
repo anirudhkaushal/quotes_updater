@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Successful people ask better questions, and as a result, they get better answers. 
+Quote: It is not wisdom but Authority that makes a law. 
 
-By: Tony Robbins
+By: Thomas Hobbes
