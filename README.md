@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You are that vast thing that you see far, far off with great telescopes. 
+Quote: Successful people ask better questions, and as a result, they get better answers. 
 
-By: Alan Watts
+By: Tony Robbins
