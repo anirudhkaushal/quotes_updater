@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No snowflake in an avalanche ever feels responsible. 
+Quote: There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living. 
 
-By: Voltaire
+By: Nelson Mandela
