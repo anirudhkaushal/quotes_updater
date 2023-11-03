@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is not wisdom but Authority that makes a law. 
+Quote: Yesterday I dared to struggle. Today I dare to win. 
 
-By: Thomas Hobbes
+By: Bernadette Devlin
