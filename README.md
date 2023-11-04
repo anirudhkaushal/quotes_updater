@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There surely is in human nature an inherent propensity to extract all the good out of all the evil. 
+Quote: In action a great heart is the chief qualification. In work, a great head. 
 
-By: Benjamin Haydon
+By: Arthur Schopenhauer
