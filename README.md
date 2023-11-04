@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. 
+Quote: The only thing to do with good advice is to pass it on. It is never of any use to oneself. 
 
-By: Laozi
+By: Oscar Wilde
