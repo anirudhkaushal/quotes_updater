@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Consider that not only do negative thoughts and emotions destroy our experience of peace, but they also undermine our health. 
+Quote: There surely is in human nature an inherent propensity to extract all the good out of all the evil. 
 
-By: Dalai Lama
+By: Benjamin Haydon
