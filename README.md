@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The only thing to do with good advice is to pass it on. It is never of any use to oneself. 
+Quote: Consider that not only do negative thoughts and emotions destroy our experience of peace, but they also undermine our health. 
 
-By: Oscar Wilde
+By: Dalai Lama
