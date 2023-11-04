@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Yesterday I dared to struggle. Today I dare to win. 
+Quote: Only when we are no longer afraid do we begin to live. 
 
-By: Bernadette Devlin
+By: Dorothy Thompson
