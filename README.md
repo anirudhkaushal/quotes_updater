@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Only when we are no longer afraid do we begin to live. 
+Quote: Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love. 
 
-By: Dorothy Thompson
+By: Laozi
