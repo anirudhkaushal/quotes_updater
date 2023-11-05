@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You are never given a wish without also being given the power to make it come true. You may have to work for it, however. 
+Quote: Work while you have the light. You are responsible for the talent that has been entrusted to you. 
 
-By: Richard Bach
+By: Henri-Frédéric Amiel
