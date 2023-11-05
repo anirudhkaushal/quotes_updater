@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In action a great heart is the chief qualification. In work, a great head. 
+Quote: Everything you are against weakens you. Everything you are for empowers you. 
 
-By: Arthur Schopenhauer
+By: Wayne Dyer
