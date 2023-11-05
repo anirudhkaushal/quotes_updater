@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is nothing in a caterpillar that tells you it's going to be a butterfly. 
+Quote: You are never given a wish without also being given the power to make it come true. You may have to work for it, however. 
 
-By: Buckminster Fuller
+By: Richard Bach
