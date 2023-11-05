@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom is the supreme part of happiness. 
+Quote: There is nothing in a caterpillar that tells you it's going to be a butterfly. 
 
-By: Sophocles
+By: Buckminster Fuller
