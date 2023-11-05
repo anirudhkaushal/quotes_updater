@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Everything you are against weakens you. Everything you are for empowers you. 
+Quote: Wisdom is the supreme part of happiness. 
 
-By: Wayne Dyer
+By: Sophocles
