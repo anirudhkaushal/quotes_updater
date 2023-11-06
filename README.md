@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there. 
+Quote: Happiness can exist only in acceptance. 
 
-By: The Buddha
+By: George Orwell
