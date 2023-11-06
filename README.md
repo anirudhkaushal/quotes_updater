@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Happiness can exist only in acceptance. 
+Quote: If we look at the world with a love of life, the world will reveal its beauty to us. 
 
-By: George Orwell
+By: Daisaku Ikeda
