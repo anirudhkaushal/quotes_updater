@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry. 
+Quote: Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict. 
 
-By: Earl Monroe
+By: William Ellery Channing
