@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If we look at the world with a love of life, the world will reveal its beauty to us. 
+Quote: Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry. 
 
-By: Daisaku Ikeda
+By: Earl Monroe
