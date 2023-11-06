@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life is 10% what happens to you and 90% how you react to it. 
+Quote: It is not wisdom but Authority that makes a law. 
 
-By: Chuck Swindoll
+By: Thomas Hobbes
