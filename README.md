@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is not wisdom but Authority that makes a law. 
+Quote: What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there. 
 
-By: Thomas Hobbes
+By: The Buddha
