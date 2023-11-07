@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There are no strangers here; Only friends you haven't yet met. 
+Quote: The possibilities are numerous once we decide to act and not react. 
 
-By: William Butler Yeats
+By: George Bernard Shaw
