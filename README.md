@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning. 
+Quote: There are no strangers here; Only friends you haven't yet met. 
 
-By: Gloria Steinem
+By: William Butler Yeats
