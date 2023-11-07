@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen. 
+Quote: It is good even for old men to learn wisdom. 
 
-By: Wayne Dyer
+By: Aeschylus
