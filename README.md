@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict. 
+Quote: Most great people have attained their greatest success just one step beyond their greatest failure. 
 
-By: William Ellery Channing
+By: Napoleon Hill
