@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Most great people have attained their greatest success just one step beyond their greatest failure. 
+Quote: Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning. 
 
-By: Napoleon Hill
+By: Gloria Steinem
