@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be. 
+Quote: We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct. 
 
-By: Thomas Jefferson
+By: Elizabeth Kapu'uwailani Lindsey
