@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Important principles may, and must, be inflexible. 
+Quote: Follow effective action with quiet reflection. From the quiet reflection will come even more effective action. 
 
-By: Abraham Lincoln
+By: Peter Drucker
