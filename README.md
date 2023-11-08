@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Follow effective action with quiet reflection. From the quiet reflection will come even more effective action. 
+Quote: The supreme art of war is to subdue the enemy without fighting. 
 
-By: Peter Drucker
+By: Sun Tzu
