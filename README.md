@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is good even for old men to learn wisdom. 
+Quote: I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be. 
 
-By: Aeschylus
+By: Thomas Jefferson
