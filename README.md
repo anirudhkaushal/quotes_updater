@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The future is completely open, and we are writing it moment to moment. 
+Quote: Important principles may, and must, be inflexible. 
 
-By: Pema Chödrön
+By: Abraham Lincoln
