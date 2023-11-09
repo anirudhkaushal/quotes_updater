@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Take no thought of who is right or wrong or who is better than. Be not for or against. 
+Quote: One must be fond of people and trust them if one is not to make a mess of life. 
 
-By: Bruce Lee
+By: E. M. Forster
