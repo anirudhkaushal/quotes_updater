@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Your worst enemy cannot harm you as much as your own unguarded thoughts. 
+Quote: Technology is the campfire around which we tell our stories. 
 
-By: The Buddha
+By: Laurie Anderson
