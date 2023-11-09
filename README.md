@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Technology is the campfire around which we tell our stories. 
+Quote: Work while you have the light. You are responsible for the talent that has been entrusted to you. 
 
-By: Laurie Anderson
+By: Henri-Frédéric Amiel
