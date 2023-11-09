@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom alone is the science of other sciences. 
+Quote: Your worst enemy cannot harm you as much as your own unguarded thoughts. 
 
-By: Plato
+By: The Buddha
