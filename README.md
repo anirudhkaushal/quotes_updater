@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One must be fond of people and trust them if one is not to make a mess of life. 
+Quote: Wisdom alone is the science of other sciences. 
 
-By: E. M. Forster
+By: Plato
