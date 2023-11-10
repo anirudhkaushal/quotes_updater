@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Work while you have the light. You are responsible for the talent that has been entrusted to you. 
+Quote: You are that vast thing that you see far, far off with great telescopes. 
 
-By: Henri-Frédéric Amiel
+By: Alan Watts
