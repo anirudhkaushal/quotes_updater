@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen. 
+Quote: I do not dispute with the world; rather it is the world that disputes with me. 
 
-By: Wayne Dyer
+By: The Buddha
