@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Radiate boundless love towards the entire world… 
+Quote: Friends are those rare people who ask how we are and then wait to hear the answer. 
 
-By: The Buddha
+By: Ed Cunningham
