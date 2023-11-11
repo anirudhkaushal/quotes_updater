@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friends are those rare people who ask how we are and then wait to hear the answer. 
+Quote: The superior man blames himself. The inferior man blames others. 
 
-By: Ed Cunningham
+By: Don Shula
