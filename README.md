@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All difficult things have their origin in that which is easy, and great things in that which is small. 
+Quote: Radiate boundless love towards the entire world… 
 
-By: Laozi
+By: The Buddha
