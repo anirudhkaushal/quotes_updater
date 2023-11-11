@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The superior man blames himself. The inferior man blames others. 
+Quote: In skating over thin ice our safety is in our speed. 
 
-By: Don Shula
+By: Ralph Waldo Emerson
