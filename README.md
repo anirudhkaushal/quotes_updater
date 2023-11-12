@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The truth you believe and cling to makes you unavailable to hear anything new. 
+Quote: I will prepare and someday my chance will come. 
 
-By: Pema Chödrön
+By: Abraham Lincoln
