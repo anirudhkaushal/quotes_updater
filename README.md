@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth. 
+Quote: If you think you can, you can. And if you think you can't, you're right. 
 
-By: Peter Abelard
+By: Henry Ford
