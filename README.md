@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: How wonderful that we have met with a paradox. Now we have some hope of making progress. 
+Quote: All tremble at violence; all fear death. Putting oneself in the place of another, one should not kill nor cause another to kill. 
 
-By: Niels Bohr
+By: The Buddha
