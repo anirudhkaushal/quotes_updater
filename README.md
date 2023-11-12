@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All tremble at violence; all fear death. Putting oneself in the place of another, one should not kill nor cause another to kill. 
+Quote: If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude. 
 
-By: The Buddha
+By: Colin Powell
