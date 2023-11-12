@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I will prepare and someday my chance will come. 
+Quote: The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth. 
 
-By: Abraham Lincoln
+By: Peter Abelard
