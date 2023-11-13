@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No yesterdays are ever wasted for those who give themselves to today. 
+Quote: When you come to the end of your rope, tie a knot and hang on. 
 
-By: Brendan Behan
+By: Franklin D. Roosevelt
