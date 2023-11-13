@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The more man meditates upon good thoughts, the better will be his world and the world at large. 
+Quote: Love is composed of a single soul inhabiting two bodies. 
 
-By: Confucius
+By: Aristotle
