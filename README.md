@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Never promise more than you can perform. 
+Quote: The more man meditates upon good thoughts, the better will be his world and the world at large. 
 
-By: Publilius Syrus
+By: Confucius
