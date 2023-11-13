@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Give me six hours to chop down a tree and I will spend the first four sharpening the axe. 
+Quote: No yesterdays are ever wasted for those who give themselves to today. 
 
-By: Abraham Lincoln
+By: Brendan Behan
