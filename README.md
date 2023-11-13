@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you think you can, you can. And if you think you can't, you're right. 
+Quote: Give me six hours to chop down a tree and I will spend the first four sharpening the axe. 
 
-By: Henry Ford
+By: Abraham Lincoln
