@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The best preparation for tomorrow is doing your best today. 
+Quote: Learning without reflection is a waste, reflection without learning is dangerous. 
 
-By: H. Jackson Brown Jr.
+By: Confucius
