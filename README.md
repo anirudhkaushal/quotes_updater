@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love is composed of a single soul inhabiting two bodies. 
+Quote: The minute you settle for less than you deserve, you get even less than you settled for. 
 
-By: Aristotle
+By: Maureen Dowd
