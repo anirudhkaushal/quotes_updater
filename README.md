@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The minute you settle for less than you deserve, you get even less than you settled for. 
+Quote: Important principles may, and must, be inflexible. 
 
-By: Maureen Dowd
+By: Abraham Lincoln
