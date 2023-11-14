@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Important principles may, and must, be inflexible. 
+Quote: The best preparation for tomorrow is doing your best today. 
 
-By: Abraham Lincoln
+By: H. Jackson Brown Jr.
