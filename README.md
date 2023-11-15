@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Autumn is a second spring when every leaf is a flower. 
+Quote: Impossibilities are merely things which we have not yet learned. 
 
-By: Albert Camus
+By: Charles W. Chesnutt
