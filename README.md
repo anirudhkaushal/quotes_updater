@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The doors of wisdom are never shut. 
+Quote: In the depth of winter, I finally learned that there was within me an invincible summer. 
 
-By: Benjamin Franklin
+By: Albert Camus
