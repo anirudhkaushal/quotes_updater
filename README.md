@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In the depth of winter, I finally learned that there was within me an invincible summer. 
+Quote: Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life. 
 
-By: Albert Camus
+By: Hermann Hesse
