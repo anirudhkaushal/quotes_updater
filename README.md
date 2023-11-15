@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Do not wait for leaders; do it alone, person to person. 
+Quote: Wisdom has never made a bigot, but learning has. 
 
-By: Mother Teresa
+By: Josh Billings
