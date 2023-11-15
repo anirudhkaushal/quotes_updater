@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Impossibilities are merely things which we have not yet learned. 
+Quote: Do not wait for leaders; do it alone, person to person. 
 
-By: Charles W. Chesnutt
+By: Mother Teresa
