@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again. 
+Quote: The world turns aside to let any man pass who knows where he is going. 
 
-By: John McCain
+By: Epictetus
