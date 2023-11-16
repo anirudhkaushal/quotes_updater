@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak. 
+Quote: Everyone thinks of changing the world, but no one thinks of changing himself. 
 
-By: Thomas Carlyle
+By: Leo Tolstoy
