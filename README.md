@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The world turns aside to let any man pass who knows where he is going. 
+Quote: Happiness resides not in possessions, and not in gold, happiness dwells in the soul. 
 
-By: Epictetus
+By: Democritus
