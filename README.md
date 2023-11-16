@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom has never made a bigot, but learning has. 
+Quote: Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again. 
 
-By: Josh Billings
+By: John McCain
