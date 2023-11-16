@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it. 
+Quote: Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak. 
 
-By: Aristotle
+By: Thomas Carlyle
