@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Everyone thinks of changing the world, but no one thinks of changing himself. 
+Quote: The best argument against democracy is a five-minute conversation with the average voter. 
 
-By: Leo Tolstoy
+By: Winston Churchill
