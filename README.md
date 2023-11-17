@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You do not become good by trying to be good, but by finding the goodness that is already within you. 
+Quote: Practice yourself, for heaven's sake in little things, and then proceed to greater. 
 
-By: Eckhart Tolle
+By: Epictetus
