@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Practice yourself, for heaven's sake in little things, and then proceed to greater. 
+Quote: Never complain and never explain. 
 
-By: Epictetus
+By: Benjamin Disraeli
