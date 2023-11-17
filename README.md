@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again. 
+Quote: You do not become good by trying to be good, but by finding the goodness that is already within you. 
 
-By: John McCain
+By: Eckhart Tolle
