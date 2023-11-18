@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: However rare true love may be, it is less so than true friendship. 
+Quote: A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown. 
 
-By: François de La Rochefoucauld
+By: Denis Waitley
