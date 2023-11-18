@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you realize there is nothing lacking, the whole world belongs to you. 
+Quote: If a man watches three football games in a row, he should be declared legally dead. 
 
-By: Laozi
+By: Erma Bombeck
