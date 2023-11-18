@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Never complain and never explain. 
+Quote: When you realize there is nothing lacking, the whole world belongs to you. 
 
-By: Benjamin Disraeli
+By: Laozi
