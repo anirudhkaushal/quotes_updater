@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If a man watches three football games in a row, he should be declared legally dead. 
+Quote: Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time. 
 
-By: Erma Bombeck
+By: Thomas Edison
