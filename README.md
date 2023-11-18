@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time. 
+Quote: However rare true love may be, it is less so than true friendship. 
 
-By: Thomas Edison
+By: François de La Rochefoucauld
