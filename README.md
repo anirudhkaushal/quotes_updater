@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown. 
+Quote: Be less curious about people and more curious about ideas. 
 
-By: Denis Waitley
+By: Marie Curie
