@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: As a cure for worrying, work is better than whisky. 
+Quote: Never idealize others. They will never live up to your expectations. 
 
-By: Thomas Edison
+By: Leo Buscaglia
