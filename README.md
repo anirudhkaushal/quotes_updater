@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship without self-interest is one of the rare and beautiful things of life. 
+Quote: Our intention creates our reality. 
 
-By: James F. Byrnes
+By: Wayne Dyer
