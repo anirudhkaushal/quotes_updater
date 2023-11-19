@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Be less curious about people and more curious about ideas. 
+Quote: The power of intuitive understanding will protect you from harm until the end of your days. 
 
-By: Marie Curie
+By: Laozi
