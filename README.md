@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is nothing on this earth more to be prized than true friendship. 
+Quote: Friendship without self-interest is one of the rare and beautiful things of life. 
 
-By: Thomas Aquinas
+By: James F. Byrnes
