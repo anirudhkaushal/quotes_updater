@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The power of intuitive understanding will protect you from harm until the end of your days. 
+Quote: As a cure for worrying, work is better than whisky. 
 
-By: Laozi
+By: Thomas Edison
