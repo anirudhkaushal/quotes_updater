@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Never idealize others. They will never live up to your expectations. 
+Quote: There is nothing on this earth more to be prized than true friendship. 
 
-By: Leo Buscaglia
+By: Thomas Aquinas
