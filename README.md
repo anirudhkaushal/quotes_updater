@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To have faith is to trust yourself to the water. When you swim you don't grab hold of the water, because if you do you will sink and drown. Instead you relax, and float. 
+Quote: There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen. 
 
-By: Alan Watts
+By: Wayne Dyer
