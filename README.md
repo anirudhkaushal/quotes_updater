@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: For it was not into my ear you whispered, but into my heart. It was not my lips you kissed, but my soul. 
+Quote: Happiness mainly comes from our own attitude, rather than from external factors. 
 
-By: Judy Garland
+By: Dalai Lama
