@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our intention creates our reality. 
+Quote: The minute you settle for less than you deserve, you get even less than you settled for. 
 
-By: Wayne Dyer
+By: Maureen Dowd
