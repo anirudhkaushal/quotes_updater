@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Happiness mainly comes from our own attitude, rather than from external factors. 
+Quote: Ignorance never settles a question. 
 
-By: Dalai Lama
+By: Benjamin Disraeli
