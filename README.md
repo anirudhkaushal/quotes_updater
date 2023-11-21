@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We must not allow ourselves to become like the system we oppose. 
+Quote: I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind. 
 
-By: Desmond Tutu
+By: Albert Einstein
