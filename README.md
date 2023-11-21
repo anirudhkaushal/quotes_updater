@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The wisest men follow their own direction. 
+Quote: We must not allow ourselves to become like the system we oppose. 
 
-By: Euripides
+By: Desmond Tutu
