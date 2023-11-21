@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind. 
+Quote: Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them. 
 
-By: Albert Einstein
+By: Sophocles
