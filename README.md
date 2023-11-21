@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts. 
+Quote: The wisest men follow their own direction. 
 
-By: Abraham Lincoln
+By: Euripides
