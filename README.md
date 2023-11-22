@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There are no failures. Just experiences and your reactions to them. 
+Quote: Never interrupt someone doing what you said couldn't be done. 
 
-By: Tom Krause
+By: Amelia Earhart
