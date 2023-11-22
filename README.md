@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed. 
+Quote: In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you. 
 
-By: Kahlil Gibran
+By: Janet Jackson
