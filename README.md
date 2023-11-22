@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it. 
+Quote: In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed. 
 
-By: Reinhold Niebuhr
+By: Kahlil Gibran
