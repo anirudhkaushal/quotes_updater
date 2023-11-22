@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Never interrupt someone doing what you said couldn't be done. 
+Quote: The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it. 
 
-By: Amelia Earhart
+By: Reinhold Niebuhr
