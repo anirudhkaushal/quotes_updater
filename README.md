@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What you get by achieving your goals is not as important as what you become by achieving your goals. 
+Quote: Always be smarter than the people who hire you. 
 
-By: Zig Ziglar
+By: Lena Horne
