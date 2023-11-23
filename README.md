@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: History is written by the victors. 
+Quote: To dare is to lose ones footing momentarily. To not dare is to lose oneself. 
 
-By: Winston Churchill
+By: Søren Kierkegaard
