@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To dare is to lose ones footing momentarily. To not dare is to lose oneself. 
+Quote: What you get by achieving your goals is not as important as what you become by achieving your goals. 
 
-By: Søren Kierkegaard
+By: Zig Ziglar
