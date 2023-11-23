@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Mind is everything: muscle, pieces of rubber. All that I am, I am because of my mind. 
+Quote: History is written by the victors. 
 
-By: Paavo Nurmi
+By: Winston Churchill
