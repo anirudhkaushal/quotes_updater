@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is a characteristic of wisdom not to do desperate things. 
+Quote: Nothing will work unless you do. 
 
-By: Henry David Thoreau
+By: Maya Angelou
