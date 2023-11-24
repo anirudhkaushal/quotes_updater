@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Opportunity does not knock, it presents itself when you beat down the door. 
+Quote: There is nothing happens to any person but what was in his power to go through with. 
 
-By: Kyle Chandler
+By: Marcus Aurelius
