@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Nothing will work unless you do. 
+Quote: The cause is hidden. The effect is visible to all. 
 
-By: Maya Angelou
+By: Ovid
