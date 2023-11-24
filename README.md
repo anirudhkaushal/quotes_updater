@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Always be smarter than the people who hire you. 
+Quote: Opportunity does not knock, it presents itself when you beat down the door. 
 
-By: Lena Horne
+By: Kyle Chandler
