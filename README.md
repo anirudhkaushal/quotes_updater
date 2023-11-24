@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Genius unrefined resembles a flash of lightning, but wisdom is like the sun. 
+Quote: It is a characteristic of wisdom not to do desperate things. 
 
-By: Franz Grillparzer
+By: Henry David Thoreau
