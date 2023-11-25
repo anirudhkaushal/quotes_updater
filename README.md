@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The cause is hidden. The effect is visible to all. 
+Quote: Even if you're on the right track, you'll get run over if you just sit there. 
 
-By: Ovid
+By: Will Rogers
