@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I find hope in the darkest of days, and focus in the brightest. I do not judge the universe. 
+Quote: I think somehow, we learn who we really are and then live with that decision. 
 
-By: Dalai Lama
+By: Eleanor Roosevelt
