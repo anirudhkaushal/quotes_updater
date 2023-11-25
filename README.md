@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Even if you're on the right track, you'll get run over if you just sit there. 
+Quote: Swim upstream. Go the other way. Ignore the conventional wisdom. 
 
-By: Will Rogers
+By: Sam Walton
