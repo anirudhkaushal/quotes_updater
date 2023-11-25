@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Swim upstream. Go the other way. Ignore the conventional wisdom. 
+Quote: Go put your creed into the deed. Nor speak with double tongue. 
 
-By: Sam Walton
+By: Ralph Waldo Emerson
