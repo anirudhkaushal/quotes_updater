@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Go put your creed into the deed. Nor speak with double tongue. 
+Quote: I find hope in the darkest of days, and focus in the brightest. I do not judge the universe. 
 
-By: Ralph Waldo Emerson
+By: Dalai Lama
