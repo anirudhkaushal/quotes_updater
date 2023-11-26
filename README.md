@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The weak can never forgive. Forgiveness is the attribute of the strong. 
+Quote: All truths are easy to understand once they are discovered; the point is to discover them. 
 
-By: Mahatma Gandhi
+By: Galileo Galilei
