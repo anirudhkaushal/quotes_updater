@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All truths are easy to understand once they are discovered; the point is to discover them. 
+Quote: Love isn't something you find. Love is something that finds you. 
 
-By: Galileo Galilei
+By: Loretta Young
