@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Everyone thinks of changing the world, but no one thinks of changing himself. 
+Quote: Formula for success: under promise and over deliver. 
 
-By: Leo Tolstoy
+By: Tom Peters
