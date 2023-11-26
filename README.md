@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In dwelling, live close to the ground. In thinking, keep to the simple. In conflict, be fair and generous. In governing, don't try to control. In work, do what you enjoy. In family life, be completely present. 
+Quote: Everyone thinks of changing the world, but no one thinks of changing himself. 
 
-By: Laozi
+By: Leo Tolstoy
