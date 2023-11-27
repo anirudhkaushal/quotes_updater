@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: History will be kind to me for I intend to write it. 
+Quote: Technology is a word that describes something that doesn't work yet. 
 
-By: Winston Churchill
+By: Douglas Adams
