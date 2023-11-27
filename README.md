@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create. 
+Quote: Sometimes the most important thing in a whole day is the rest we take between two deep breaths. 
 
-By: Albert Einstein
+By: Etty Hillesum
