@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Never apologize for showing feeling. When you do so, you apologize for truth. 
+Quote: History will be kind to me for I intend to write it. 
 
-By: Benjamin Disraeli
+By: Winston Churchill
