@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To get the full value of joy you must have someone to divide it with. 
+Quote: Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create. 
 
-By: Mark Twain
+By: Albert Einstein
