@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love isn't something you find. Love is something that finds you. 
+Quote: Never apologize for showing feeling. When you do so, you apologize for truth. 
 
-By: Loretta Young
+By: Benjamin Disraeli
