@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Science is organized knowledge. Wisdom is organized life. 
+Quote: Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values. 
 
-By: Immanuel Kant
+By: Sidney Hook
