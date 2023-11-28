@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values. 
+Quote: Whatever is not yours: let go of it. Your letting go of it will be for your long-term happiness & benefit. 
 
-By: Sidney Hook
+By: The Buddha
