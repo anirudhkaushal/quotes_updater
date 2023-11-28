@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Sometimes the most important thing in a whole day is the rest we take between two deep breaths. 
+Quote: Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable. 
 
-By: Etty Hillesum
+By: Carl Jung
