@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: So then, the relationship of self to other is the complete realization that loving yourself is impossible without loving everything defined as other than yourself. 
+Quote: If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. 
 
-By: Alan Watts
+By: Rachel Carson
