@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. 
+Quote: Don't compromise yourself. You are all you've got. 
 
-By: Rachel Carson
+By: Janis Joplin
