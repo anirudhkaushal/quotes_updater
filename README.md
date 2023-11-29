@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind. 
+Quote: Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime. 
 
-By: The Buddha
+By: Laozi
