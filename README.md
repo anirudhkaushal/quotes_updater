@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Time is the wisest counsellor of all. 
+Quote: Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind. 
 
-By: Pericles
+By: The Buddha
