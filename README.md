@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Don't compromise yourself. You are all you've got. 
+Quote: The only way to make sense out of change is to plunge into it, move with it, and join the dance. 
 
-By: Janis Joplin
+By: Alan Watts
