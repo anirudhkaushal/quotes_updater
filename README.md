@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary. 
+Quote: Six essential qualities that are the key to success: Sincerity, personal integrity, humility, courtesy, wisdom, charity. 
 
-By: Thomas Edison
+By: William C. Menninger
