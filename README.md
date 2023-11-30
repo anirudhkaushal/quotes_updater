@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In wartime, truth is so precious that she should always be attended by a bodyguard of lies. 
+Quote: When you learn, teach. When you get, give. 
 
-By: Winston Churchill
+By: Maya Angelou
