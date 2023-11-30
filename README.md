@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime. 
+Quote: If with a pure mind a person speaks or acts, happiness follows them like a never-departing shadow. 
 
-By: Laozi
+By: The Buddha
