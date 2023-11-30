@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain. 
+Quote: The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary. 
 
-By: Oprah Winfrey
+By: Thomas Edison
