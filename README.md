@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Where all think alike, no one thinks very much. 
+Quote: All know the way; few actually walk it. 
 
-By: Walter Lippmann
+By: Bodhidharma
