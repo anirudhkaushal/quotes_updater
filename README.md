@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds. 
+Quote: Where all think alike, no one thinks very much. 
 
-By: Wayne Dyer
+By: Walter Lippmann
