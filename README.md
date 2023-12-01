@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Six essential qualities that are the key to success: Sincerity, personal integrity, humility, courtesy, wisdom, charity. 
+Quote: As an organizer I start from where the world is, as it is, not as I would like it to be. 
 
-By: William C. Menninger
+By: Saul Alinsky
