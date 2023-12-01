@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Whatever is not yours: let go of it. Your letting go of it will be for your long-term happiness & benefit. 
+Quote: What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds. 
 
-By: The Buddha
+By: Wayne Dyer
