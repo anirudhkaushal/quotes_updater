@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A single lamp may light hundreds of thousands of lamps without itself being diminished. 
+Quote: The only true wisdom is in knowing you know nothing. 
 
-By: The Buddha
+By: Isocrates
