@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Only when we are no longer afraid do we begin to live. 
+Quote: Your talent is God's gift to you. What you do with it is your gift back to God. 
 
-By: Dorothy Thompson
+By: Leo Buscaglia
