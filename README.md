@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The more you know yourself, the more you forgive yourself. 
+Quote: Only when we are no longer afraid do we begin to live. 
 
-By: Confucius
+By: Dorothy Thompson
