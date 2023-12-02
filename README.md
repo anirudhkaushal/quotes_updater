@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All know the way; few actually walk it. 
+Quote: The more you know yourself, the more you forgive yourself. 
 
-By: Bodhidharma
+By: Confucius
