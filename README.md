@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Your talent is God's gift to you. What you do with it is your gift back to God. 
+Quote: He who knows that enough is enough will always have enough. 
 
-By: Leo Buscaglia
+By: Laozi
