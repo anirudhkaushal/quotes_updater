@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He who knows that enough is enough will always have enough. 
+Quote: A single lamp may light hundreds of thousands of lamps without itself being diminished. 
 
-By: Laozi
+By: The Buddha
