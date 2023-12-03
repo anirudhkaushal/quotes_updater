@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Know how to listen, and you will profit even from those who talk badly. 
+Quote: I will prepare and someday my chance will come. 
 
-By: Plutarch
+By: Abraham Lincoln
