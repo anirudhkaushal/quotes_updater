@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It all depends on how we look at things, and not how they are in themselves. 
+Quote: Wherever a man turns he can find someone who needs him. 
 
-By: Carl Jung
+By: Albert Schweitzer
