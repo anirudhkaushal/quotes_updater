@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Reality does not conform to the ideal but confirms it. 
+Quote: All is flux; nothing stays still. 
 
-By: Gustave Flaubert
+By: Heraclitus
