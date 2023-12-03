@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The only true wisdom is in knowing you know nothing. 
+Quote: Know how to listen, and you will profit even from those who talk badly. 
 
-By: Isocrates
+By: Plutarch
