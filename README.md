@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I will prepare and someday my chance will come. 
+Quote: Reality does not conform to the ideal but confirms it. 
 
-By: Abraham Lincoln
+By: Gustave Flaubert
