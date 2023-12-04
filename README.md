@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He who is contented is rich. 
+Quote: You can't choose up sides on a round world. 
 
-By: Laozi
+By: Wayne Dyer
