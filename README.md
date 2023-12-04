@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wherever a man turns he can find someone who needs him. 
+Quote: We never live; we are always in the expectation of living. 
 
-By: Albert Schweitzer
+By: Voltaire
