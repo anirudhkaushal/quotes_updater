@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We never live; we are always in the expectation of living. 
+Quote: First comes thought; then organization of that thought, into ideas and plans; then transformation of those plans into reality. The beginning, as you will observe, is in your imagination. 
 
-By: Voltaire
+By: Napoleon Hill
