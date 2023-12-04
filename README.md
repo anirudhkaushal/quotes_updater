@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship is but another name for an alliance with the follies and the misfortunes of others. Our own share of miseries is sufficient: why enter then as volunteers into those of another? 
+Quote: I want my friend to miss me as long as I miss him. 
 
-By: Thomas Jefferson
+By: Augustine of Hippo
