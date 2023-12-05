@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The human spirit must prevail over technology. 
+Quote: True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment. 
 
-By: Albert Einstein
+By: William Penn
