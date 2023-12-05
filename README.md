@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment. 
+Quote: Avoid having your ego so close to your position that when your position falls, your ego goes with it. 
 
-By: William Penn
+By: Colin Powell
