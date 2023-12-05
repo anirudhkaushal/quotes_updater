@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. 
+Quote: The human spirit must prevail over technology. 
 
-By: Winston Churchill
+By: Albert Einstein
