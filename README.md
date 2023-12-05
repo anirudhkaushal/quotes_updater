@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Avoid having your ego so close to your position that when your position falls, your ego goes with it. 
+Quote: Finding good players is easy. Getting them to play as a team is another story. 
 
-By: Colin Powell
+By: Casey Stengel
