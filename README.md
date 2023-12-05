@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Finding good players is easy. Getting them to play as a team is another story. 
+Quote: Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing. 
 
-By: Casey Stengel
+By: Aristotle
