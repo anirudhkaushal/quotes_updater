@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing. 
+Quote: The eye sees only what the mind is prepared to comprehend. 
 
-By: Aristotle
+By: Henri Bergson
