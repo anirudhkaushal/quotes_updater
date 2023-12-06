@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The eye sees only what the mind is prepared to comprehend. 
+Quote: Happiness is not something ready-made. It comes from your own actions. 
 
-By: Henri Bergson
+By: Dalai Lama
