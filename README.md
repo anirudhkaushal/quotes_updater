@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One secret of success in life is for a man to be ready for his opportunity when it comes. 
+Quote: To be great is to be misunderstood. 
 
-By: Benjamin Disraeli
+By: Ralph Waldo Emerson
