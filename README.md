@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To be great is to be misunderstood. 
+Quote: Memory is the mother of all wisdom. 
 
-By: Ralph Waldo Emerson
+By: Samuel Johnson
