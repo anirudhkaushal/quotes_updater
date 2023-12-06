@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Happiness is not something ready-made. It comes from your own actions. 
+Quote: One secret of success in life is for a man to be ready for his opportunity when it comes. 
 
-By: Dalai Lama
+By: Benjamin Disraeli
