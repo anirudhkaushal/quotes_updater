@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Memory is the mother of all wisdom. 
+Quote: Hope arouses, as nothing else can arouse, a passion for the possible. 
 
-By: Samuel Johnson
+By: William Sloane Coffin
