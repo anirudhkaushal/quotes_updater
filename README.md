@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Hope arouses, as nothing else can arouse, a passion for the possible. 
+Quote: No alibi will save you from accepting the responsibility. 
 
-By: William Sloane Coffin
+By: Napoleon Hill
