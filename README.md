@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No alibi will save you from accepting the responsibility. 
+Quote: It is the mark of an educated mind to be able to entertain a thought without accepting it. 
 
-By: Napoleon Hill
+By: Aristotle
