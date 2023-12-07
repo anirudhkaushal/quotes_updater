@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Beware of false knowledge; it is more dangerous than ignorance. 
+Quote: Do not wait for leaders; do it alone, person to person. 
 
-By: Bernard Shaw
+By: Mother Teresa
