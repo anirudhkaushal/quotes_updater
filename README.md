@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is the mark of an educated mind to be able to entertain a thought without accepting it. 
+Quote: Wisdom alone is the science of other sciences. 
 
-By: Aristotle
+By: Plato
