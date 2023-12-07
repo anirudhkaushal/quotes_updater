@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Do not wait for leaders; do it alone, person to person. 
+Quote: The most certain sign of wisdom is cheerfulness. 
 
-By: Mother Teresa
+By: Michel de Montaigne
