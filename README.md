@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom alone is the science of other sciences. 
+Quote: Beware of false knowledge; it is more dangerous than ignorance. 
 
-By: Plato
+By: Bernard Shaw
