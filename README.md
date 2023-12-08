@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The only person who never makes mistakes is the person who never does anything. 
+Quote: If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when? 
 
-By: Denis Waitley
+By: Rabbi Hillel
