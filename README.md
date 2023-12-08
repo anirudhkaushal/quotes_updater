@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better. 
+Quote: The sincere friends of this world are as ship lights in the stormiest of nights. 
 
-By: Samuel Beckett
+By: Giotto
