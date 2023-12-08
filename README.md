@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The most certain sign of wisdom is cheerfulness. 
+Quote: Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better. 
 
-By: Michel de Montaigne
+By: Samuel Beckett
