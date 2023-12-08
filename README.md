@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In skating over thin ice our safety is in our speed. 
+Quote: The only person who never makes mistakes is the person who never does anything. 
 
-By: Ralph Waldo Emerson
+By: Denis Waitley
