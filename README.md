@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The sincere friends of this world are as ship lights in the stormiest of nights. 
+Quote: Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind. 
 
-By: Giotto
+By: Leonardo da Vinci
