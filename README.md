@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind. 
+Quote: In skating over thin ice our safety is in our speed. 
 
-By: Leonardo da Vinci
+By: Ralph Waldo Emerson
