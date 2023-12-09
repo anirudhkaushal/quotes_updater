@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when? 
+Quote: The winner ain't the one with the fastest car it's the one who refuses to lose. 
 
-By: Rabbi Hillel
+By: Dale Earnhardt
