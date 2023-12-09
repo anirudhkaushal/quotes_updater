@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The winner ain't the one with the fastest car it's the one who refuses to lose. 
+Quote: Tell me and I forget. Teach me and I remember. Involve me and I learn. 
 
-By: Dale Earnhardt
+By: Benjamin Franklin
