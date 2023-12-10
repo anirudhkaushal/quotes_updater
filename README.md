@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Sometimes being a friend means mastering the art of timing. There is a time for silence. A time to let go and allow people to hurl themselves into their own destiny. And a time to prepare to pick up the pieces when it's all over. 
+Quote: Let my skin and sinews and bones dry up, together with all the flesh and blood of my body! I welcome it! But I will not move from this spot until I have attained the supreme and final wisdom. 
 
-By: Octavia E. Butler
+By: The Buddha
