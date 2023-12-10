@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Everyone has been made for some particular work, and the desire for that work has been put in every heart. 
+Quote: Sometimes being a friend means mastering the art of timing. There is a time for silence. A time to let go and allow people to hurl themselves into their own destiny. And a time to prepare to pick up the pieces when it's all over. 
 
-By: Rumi
+By: Octavia E. Butler
