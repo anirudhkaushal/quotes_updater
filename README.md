@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will. 
+Quote: Everyone has been made for some particular work, and the desire for that work has been put in every heart. 
 
-By: Epictetus
+By: Rumi
