@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our greatness lies not so much in being able to remake the world as being able to remake ourselves. 
+Quote: I'm not afraid of storms, for I'm learning how to sail my ship. 
 
-By: Mahatma Gandhi
+By: Louisa May Alcott
