@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past! 
+Quote: Our greatness lies not so much in being able to remake the world as being able to remake ourselves. 
 
-By: Charlotte Perkins Gilman
+By: Mahatma Gandhi
