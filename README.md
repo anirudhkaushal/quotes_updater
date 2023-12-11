@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If one is estranged from oneself, then one is estranged from others too. If one is out of touch with oneself, then one cannot touch others. 
+Quote: Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past! 
 
-By: Anne Lindbergh
+By: Charlotte Perkins Gilman
