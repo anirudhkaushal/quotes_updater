@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible. 
+Quote: Avoid having your ego so close to your position that when your position falls, your ego goes with it. 
 
-By: Epictetus
+By: Colin Powell
