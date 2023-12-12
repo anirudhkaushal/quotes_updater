@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Finding good players is easy. Getting them to play as a team is another story. 
+Quote: The power of intuitive understanding will protect you from harm until the end of your days. 
 
-By: Casey Stengel
+By: Laozi
