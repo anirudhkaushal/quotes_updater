@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Avoid having your ego so close to your position that when your position falls, your ego goes with it. 
+Quote: An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men. 
 
-By: Colin Powell
+By: Thomas Fuller
