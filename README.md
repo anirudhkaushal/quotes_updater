@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Accept the challenges so that you can feel the exhilaration of victory. 
+Quote: Finding good players is easy. Getting them to play as a team is another story. 
 
-By: George S. Patton
+By: Casey Stengel
