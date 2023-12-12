@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The power of intuitive understanding will protect you from harm until the end of your days. 
+Quote: Think like a man of action; act like a man of thought. 
 
-By: Laozi
+By: Henri Bergson
