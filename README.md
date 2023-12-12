@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The way we communicate with others and with ourselves ultimately determines the quality of our lives. 
+Quote: Accept the challenges so that you can feel the exhilaration of victory. 
 
-By: Tony Robbins
+By: George S. Patton
