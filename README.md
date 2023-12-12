@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men. 
+Quote: The way we communicate with others and with ourselves ultimately determines the quality of our lives. 
 
-By: Thomas Fuller
+By: Tony Robbins
