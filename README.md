@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: So is cheerfulness, or a good temper, the more it is spent, the more remains. 
+Quote: He that respects himself is safe from others; he wears a coat of mail that none can pierce. 
 
-By: Ralph Waldo Emerson
+By: Henry Wadsworth Longfellow
