@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The price of greatness is responsibility. 
+Quote: I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. 
 
-By: Winston Churchill
+By: Leonardo da Vinci
