@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Think like a man of action; act like a man of thought. 
+Quote: One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion. 
 
-By: Henri Bergson
+By: Simone de Beauvoir
