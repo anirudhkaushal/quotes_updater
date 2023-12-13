@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion. 
+Quote: There surely is in human nature an inherent propensity to extract all the good out of all the evil. 
 
-By: Simone de Beauvoir
+By: Benjamin Haydon
