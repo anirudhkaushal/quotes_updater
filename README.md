@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There surely is in human nature an inherent propensity to extract all the good out of all the evil. 
+Quote: So is cheerfulness, or a good temper, the more it is spent, the more remains. 
 
-By: Benjamin Haydon
+By: Ralph Waldo Emerson
