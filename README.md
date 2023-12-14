@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He who fears being conquered is sure of defeat. 
+Quote: Our greatness lies not so much in being able to remake the world as being able to remake ourselves. 
 
-By: Napoleon
+By: Mahatma Gandhi
