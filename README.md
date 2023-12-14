@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. 
+Quote: Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others 
 
-By: Leonardo da Vinci
+By: The Buddha
