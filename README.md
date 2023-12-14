@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wishing to be friends is quick work, but friendship is a slow ripening fruit. 
+Quote: A good head and a good heart are always a formidable combination. 
 
-By: Aristotle
+By: Nelson Mandela
