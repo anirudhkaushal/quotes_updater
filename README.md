@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A good head and a good heart are always a formidable combination. 
+Quote: A person who never made a mistake never tried anything new. 
 
-By: Nelson Mandela
+By: Albert Einstein
