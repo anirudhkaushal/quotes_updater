@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A person who never made a mistake never tried anything new. 
+Quote: He who fears being conquered is sure of defeat. 
 
-By: Albert Einstein
+By: Napoleon
