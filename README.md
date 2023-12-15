@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party. 
+Quote: You really can change the world if you care enough. 
 
-By: Hanya Yanagihara
+By: Marian Wright Edelman
