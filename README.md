@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You really can change the world if you care enough. 
+Quote: In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed. 
 
-By: Marian Wright Edelman
+By: Kahlil Gibran
