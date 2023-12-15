@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our greatness lies not so much in being able to remake the world as being able to remake ourselves. 
+Quote: The higher we are placed, the more humbly we should walk. 
 
-By: Mahatma Gandhi
+By: Cicero
