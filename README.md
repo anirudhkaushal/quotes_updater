@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Whatever is not yours: let go of it. Your letting go of it will be for your long-term happiness & benefit. 
+Quote: Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party. 
 
-By: The Buddha
+By: Hanya Yanagihara
