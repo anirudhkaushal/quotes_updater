@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: None knows the weight of another's burden. 
+Quote: Every friendship is different because everyone's personality is different. 
 
-By: George Herbert
+By: Nargis Fakhri
