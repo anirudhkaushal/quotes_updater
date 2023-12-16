@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Do not give your attention to what others do or fail to do; give it to what you do or fail to do. 
+Quote: Some do not understand that we must die, But those who do realize this settle their quarrels. 
 
-By: Dhammapada
+By: The Buddha
