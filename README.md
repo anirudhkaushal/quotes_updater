@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All experiences are preceded by mind, having mind as their master, created by mind. 
+Quote: None knows the weight of another's burden. 
 
-By: The Buddha
+By: George Herbert
