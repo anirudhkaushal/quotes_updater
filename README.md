@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Every friendship is different because everyone's personality is different. 
+Quote: True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions. 
 
-By: Nargis Fakhri
+By: Joseph Addison
