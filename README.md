@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Imagination is the living power and prime agent of all human perception. 
+Quote: There are no secrets to success. It is the result of preparation, hard work, and learning from failure. 
 
-By: Samuel Taylor Coleridge
+By: Colin Powell
