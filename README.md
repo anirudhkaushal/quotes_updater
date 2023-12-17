@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate. 
+Quote: While we stop to think, we often miss our opportunity. 
 
-By: Zhuang Zhou
+By: Publilius Syrus
