@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions. 
+Quote: Imagination is the living power and prime agent of all human perception. 
 
-By: Joseph Addison
+By: Samuel Taylor Coleridge
