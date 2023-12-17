@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: While we stop to think, we often miss our opportunity. 
+Quote: I don't want to achieve immortality through my work... I want to achieve it through not dying. 
 
-By: Publilius Syrus
+By: Woody Allen
