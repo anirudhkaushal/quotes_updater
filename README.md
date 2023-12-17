@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The word philosophy sounds high-minded, but it simply means the love of wisdom. If you love something, you don't just read about it; you hug it, you mess with it, you play with it, you argue with it. 
+Quote: Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate. 
 
-By: Hugh Jackman
+By: Zhuang Zhou
