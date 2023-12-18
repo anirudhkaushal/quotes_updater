@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can. 
+Quote: It is a miracle that curiosity survives formal education. 
 
-By: Bernard Shaw
+By: Albert Einstein
