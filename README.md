@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Kind words can be short and easy to speak, but their echoes are truly endless. 
+Quote: Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life's search for love and wisdom. 
 
-By: Mother Teresa
+By: Rumi
