@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I don't want to achieve immortality through my work... I want to achieve it through not dying. 
+Quote: I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can. 
 
-By: Woody Allen
+By: Bernard Shaw
