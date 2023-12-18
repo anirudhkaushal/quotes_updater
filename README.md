@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions. 
+Quote: Kind words can be short and easy to speak, but their echoes are truly endless. 
 
-By: Samuel Johnson
+By: Mother Teresa
