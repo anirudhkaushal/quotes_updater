@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The man who trusts men will make fewer mistakes than he who distrusts them. 
+Quote: Be like the flower, turn your face to the sun. 
 
-By: Camillo Benso, Count of Cavour
+By: Kahlil Gibran
