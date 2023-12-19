@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It isn't where you come from, it's where you're going that counts. 
+Quote: Some people go to priests; others to poetry; I to my friends. 
 
-By: Ella Fitzgerald
+By: Virginia Woolf
