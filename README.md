@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: My friends are my estate. 
+Quote: It isn't where you come from, it's where you're going that counts. 
 
-By: Emily Dickinson
+By: Ella Fitzgerald
