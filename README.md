@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Some people go to priests; others to poetry; I to my friends. 
+Quote: I am always doing that which I cannot do, in order that I may learn how to do it. 
 
-By: Virginia Woolf
+By: Pablo Picasso
