@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Be like the flower, turn your face to the sun. 
+Quote: Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another. 
 
-By: Kahlil Gibran
+By: Eustace Budgell
