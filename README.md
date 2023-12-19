@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I am always doing that which I cannot do, in order that I may learn how to do it. 
+Quote: The man who trusts men will make fewer mistakes than he who distrusts them. 
 
-By: Pablo Picasso
+By: Camillo Benso, Count of Cavour
