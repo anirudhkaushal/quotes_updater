@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We must not allow ourselves to become like the system we oppose. 
+Quote: Forgiveness is choosing to love. It is the first skill of self-giving love. 
 
-By: Desmond Tutu
+By: Mahatma Gandhi
