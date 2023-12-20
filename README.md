@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another. 
+Quote: Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control. 
 
-By: Eustace Budgell
+By: Martin Luther King Jr.
