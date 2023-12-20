@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion. 
+Quote: Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family. 
 
-By: Simone de Beauvoir
+By: Salman Rushdie
