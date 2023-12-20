@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The past has no power to stop you from being present now. Only your grievance about the past can do that. 
+Quote: One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion. 
 
-By: Eckhart Tolle
+By: Simone de Beauvoir
