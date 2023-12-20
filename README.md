@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Forgiveness is choosing to love. It is the first skill of self-giving love. 
+Quote: The past has no power to stop you from being present now. Only your grievance about the past can do that. 
 
-By: Mahatma Gandhi
+By: Eckhart Tolle
