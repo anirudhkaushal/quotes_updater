@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Sincerity is the way of Heaven. The attainment of sincerity is the way of men. 
+Quote: Fortune favors the brave. 
 
-By: Confucius
+By: Virgil
