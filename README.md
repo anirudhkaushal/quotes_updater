@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Computers are like bikinis. They save people a lot of guesswork. 
+Quote: You cannot be lonely if you like the person you're alone with. 
 
-By: Sam Ewing
+By: Wayne Dyer
