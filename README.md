@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Fortune favors the brave. 
+Quote: I want you to be everything that's you, deep at the center of your being. 
 
-By: Virgil
+By: Confucius
