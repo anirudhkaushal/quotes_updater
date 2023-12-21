@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I want you to be everything that's you, deep at the center of your being. 
+Quote: When you realize there is nothing lacking, the whole world belongs to you. 
 
-By: Confucius
+By: Laozi
