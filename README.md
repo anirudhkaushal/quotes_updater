@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family. 
+Quote: Sincerity is the way of Heaven. The attainment of sincerity is the way of men. 
 
-By: Salman Rushdie
+By: Confucius
