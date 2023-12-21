@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you realize there is nothing lacking, the whole world belongs to you. 
+Quote: Computers are like bikinis. They save people a lot of guesswork. 
 
-By: Laozi
+By: Sam Ewing
