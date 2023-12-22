@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You cannot be lonely if you like the person you're alone with. 
+Quote: More often than not, anger is actually an indication of weakness rather than of strength. 
 
-By: Wayne Dyer
+By: Dalai Lama
