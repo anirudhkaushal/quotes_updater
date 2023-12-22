@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Strong people make as many mistakes as weak people. Difference is that strong people admit their mistakes, laugh at them, learn from them. That is how they become strong. 
+Quote: Programs must be written for people to read, and only incidentally for machines to execute. 
 
-By: Richard Needham
+By: Hal Abelson
