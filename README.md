@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: More often than not, anger is actually an indication of weakness rather than of strength. 
+Quote: Imagination rules the world. 
 
-By: Dalai Lama
+By: Napoleon
