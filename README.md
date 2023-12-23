@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The longer we dwell on our misfortunes, the greater is their power to harm us. 
+Quote: Imagination will often carry us to worlds that never were. But without it we go nowhere. 
 
-By: Voltaire
+By: Carl Sagan
