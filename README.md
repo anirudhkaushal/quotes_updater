@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Imagination will often carry us to worlds that never were. But without it we go nowhere. 
+Quote: 'As I am, so are these. As are these, so am I.' Drawing the parallel to yourself, neither kill nor get others to kill. 
 
-By: Carl Sagan
+By: The Buddha
