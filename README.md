@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Opportunity is missed by most because it is dressed in overalls and looks like work. 
+Quote: To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god. 
 
-By: Thomas Edison
+By: Napoleon
