@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Those who are free of resentful thoughts surely find peace. 
+Quote: Opportunity is missed by most because it is dressed in overalls and looks like work. 
 
-By: The Buddha
+By: Thomas Edison
