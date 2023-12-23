@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Programs must be written for people to read, and only incidentally for machines to execute. 
+Quote: Those who are free of resentful thoughts surely find peace. 
 
-By: Hal Abelson
+By: The Buddha
