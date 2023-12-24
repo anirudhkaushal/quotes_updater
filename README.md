@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We cannot do everything at once, but we can do something at once. 
+Quote: In all things of nature there is something of the marvelous. 
 
-By: Calvin Coolidge
+By: Aristotle
