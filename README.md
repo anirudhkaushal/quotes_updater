@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In all things of nature there is something of the marvelous. 
+Quote: Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world. 
 
-By: Aristotle
+By: Jane Addams
