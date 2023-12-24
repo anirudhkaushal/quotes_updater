@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich. 
+Quote: There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool. 
 
-By: Muhammad Ali
+By: Francis Bacon
