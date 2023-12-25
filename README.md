@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is not so much our friends' help that helps us, as the confidence of their help. 
+Quote: To want to be what one can be is purpose in life. 
 
-By: Epicurus
+By: Cynthia Ozick
