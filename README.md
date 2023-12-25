@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The most successful people are those who are good at plan B. 
+Quote: The superior man is satisfied and composed; the mean man is always full of distress. 
 
-By: James A. Yorke
+By: Confucius
