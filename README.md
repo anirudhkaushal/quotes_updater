@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The superior man is satisfied and composed; the mean man is always full of distress. 
+Quote: We cannot solve our problems with the same thinking we used when we created them. 
 
-By: Confucius
+By: Albert Einstein
