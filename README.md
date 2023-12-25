@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Never deny a diagnosis but do deny the negative verdict that may go with it. 
+Quote: The farther backward you can look, the farther forward you can see. 
 
-By: Norman Cousins
+By: Winston Churchill
