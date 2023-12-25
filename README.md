@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We cannot solve our problems with the same thinking we used when we created them. 
+Quote: Never deny a diagnosis but do deny the negative verdict that may go with it. 
 
-By: Albert Einstein
+By: Norman Cousins
