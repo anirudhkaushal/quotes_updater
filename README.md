@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To want to be what one can be is purpose in life. 
+Quote: The most successful people are those who are good at plan B. 
 
-By: Cynthia Ozick
+By: James A. Yorke
