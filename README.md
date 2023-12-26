@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You can't cross the sea merely by standing and staring at the water. 
+Quote: And as we let our own light shine, we unconsciously give other people permission to do the same. 
 
-By: Rabindranath Tagore
+By: Nelson Mandela
