@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The Superior Man is aware of Righteousness, the inferior man is aware of advantage. 
+Quote: You can't cross the sea merely by standing and staring at the water. 
 
-By: Confucius
+By: Rabindranath Tagore
