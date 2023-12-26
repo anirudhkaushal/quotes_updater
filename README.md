@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Through perseverance many people win success out of what seemed destined to be certain failure. 
+Quote: The art challenges the technology, and the technology inspires the art. 
 
-By: Benjamin Disraeli
+By: John Lasseter
