@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The farther backward you can look, the farther forward you can see. 
+Quote: Through perseverance many people win success out of what seemed destined to be certain failure. 
 
-By: Winston Churchill
+By: Benjamin Disraeli
