@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The art challenges the technology, and the technology inspires the art. 
+Quote: We know what we are but know not what we may be. 
 
-By: John Lasseter
+By: William Shakespeare
