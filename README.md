@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We know what we are but know not what we may be. 
+Quote: The Superior Man is aware of Righteousness, the inferior man is aware of advantage. 
 
-By: William Shakespeare
+By: Confucius
