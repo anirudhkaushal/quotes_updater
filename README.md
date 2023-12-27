@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: And as we let our own light shine, we unconsciously give other people permission to do the same. 
+Quote: If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair. 
 
-By: Nelson Mandela
+By: Samuel Johnson
