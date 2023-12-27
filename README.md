@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You cannot escape the responsibility of tomorrow by evading it today. 
+Quote: The sincere friends of this world are as ship lights in the stormiest of nights. 
 
-By: Abraham Lincoln
+By: Giotto
