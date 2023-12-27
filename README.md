@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair. 
+Quote: No one has a finer command of language than the person who keeps his mouth shut. 
 
-By: Samuel Johnson
+By: Sam Rayburn
