@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. 
+Quote: You cannot escape the responsibility of tomorrow by evading it today. 
 
-By: Charles Dickens
+By: Abraham Lincoln
