@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The sincere friends of this world are as ship lights in the stormiest of nights. 
+Quote: Sometimes the most important thing in a whole day is the rest we take between two deep breaths. 
 
-By: Giotto
+By: Etty Hillesum
