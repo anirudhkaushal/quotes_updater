@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No one has a finer command of language than the person who keeps his mouth shut. 
+Quote: Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. 
 
-By: Sam Rayburn
+By: Charles Dickens
