@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime. 
+Quote: Sadness flies away on the wings of time. 
 
-By: Laozi
+By: Jean de La Fontaine
