@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Take rest; a field that has rested gives a bountiful crop. 
+Quote: The two most powerful warriors are patience and time. 
 
-By: Ovid
+By: Leo Tolstoy
