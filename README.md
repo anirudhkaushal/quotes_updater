@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Silence at the proper season is wisdom, and better than any speech. 
+Quote: Take rest; a field that has rested gives a bountiful crop. 
 
-By: Plutarch
+By: Ovid
