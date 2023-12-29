@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Do you know what my favorite part of the game is? The opportunity to play. 
+Quote: The road of excess leads to the palace of wisdom. 
 
-By: Mike Singletary (basketball)
+By: William Blake
