@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Sadness flies away on the wings of time. 
+Quote: He who controls others may be powerful, but he who has mastered himself is mightier still. 
 
-By: Jean de La Fontaine
+By: Laozi
