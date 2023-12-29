@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish. 
+Quote: It is one of the blessings of old friends that you can afford to be stupid with them. 
 
-By: John Adams
+By: Ralph Waldo Emerson
