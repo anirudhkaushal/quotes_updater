@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He who controls others may be powerful, but he who has mastered himself is mightier still. 
+Quote: Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish. 
 
-By: Laozi
+By: John Adams
