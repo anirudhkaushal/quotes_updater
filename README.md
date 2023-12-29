@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The most formidable weapon against errors of every kind is reason. 
+Quote: Do you know what my favorite part of the game is? The opportunity to play. 
 
-By: Thomas Paine
+By: Mike Singletary (basketball)
