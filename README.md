@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is one of the blessings of old friends that you can afford to be stupid with them. 
+Quote: The most formidable weapon against errors of every kind is reason. 
 
-By: Ralph Waldo Emerson
+By: Thomas Paine
