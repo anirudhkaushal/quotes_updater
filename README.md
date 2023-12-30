@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A life spent making mistakes is not only more honorable, but more useful than a life spent doing nothing. 
+Quote: In wartime, truth is so precious that she should always be attended by a bodyguard of lies. 
 
-By: George Bernard Shaw
+By: Winston Churchill
