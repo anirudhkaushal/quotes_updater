@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In wartime, truth is so precious that she should always be attended by a bodyguard of lies. 
+Quote: If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. 
 
-By: Winston Churchill
+By: Rachel Carson
