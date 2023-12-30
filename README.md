@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The road of excess leads to the palace of wisdom. 
+Quote: The differences between friends cannot but reinforce their friendship. 
 
-By: William Blake
+By: Mao Zedong
