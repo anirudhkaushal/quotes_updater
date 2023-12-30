@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself. 
+Quote: We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. 
 
-By: Confucius
+By: Uta Hagen
