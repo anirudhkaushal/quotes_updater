@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. 
+Quote: A life spent making mistakes is not only more honorable, but more useful than a life spent doing nothing. 
 
-By: Uta Hagen
+By: George Bernard Shaw
