@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you realize there is nothing lacking, the whole world belongs to you. 
+Quote: It is the neglect of timely repair that makes rebuilding necessary. 
 
-By: Laozi
+By: Richard Whately
