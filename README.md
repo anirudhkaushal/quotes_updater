@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. 
+Quote: Genius is one per cent inspiration, ninety-nine per cent perspiration. 
 
-By: Rachel Carson
+By: Thomas Edison
