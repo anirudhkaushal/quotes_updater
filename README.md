@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Genius is one per cent inspiration, ninety-nine per cent perspiration. 
+Quote: The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is. 
 
-By: Thomas Edison
+By: Winston Churchill
