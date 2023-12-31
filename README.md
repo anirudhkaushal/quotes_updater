@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A wise man will make more opportunities than he finds. 
+Quote: When you realize there is nothing lacking, the whole world belongs to you. 
 
-By: Francis Bacon
+By: Laozi
