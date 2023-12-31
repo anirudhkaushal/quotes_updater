@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is. 
+Quote: A wise man will make more opportunities than he finds. 
 
-By: Winston Churchill
+By: Francis Bacon
