@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is the neglect of timely repair that makes rebuilding necessary. 
+Quote: We will develop and cultivate the liberation of mind by lovingkindness, make it our vehicle, make it our basis, stabilize it, exercise ourselves in it, and fully perfect it. 
 
-By: Richard Whately
+By: The Buddha
