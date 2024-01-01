@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I know not age, nor weariness nor defeat. 
+Quote: Be yourself; everyone else is already taken. 
 
-By: Rose Kennedy
+By: Oscar Wilde
