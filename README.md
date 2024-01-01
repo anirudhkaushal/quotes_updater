@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort. 
+Quote: I know not age, nor weariness nor defeat. 
 
-By: Franklin D. Roosevelt
+By: Rose Kennedy
