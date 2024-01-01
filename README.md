@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We will develop and cultivate the liberation of mind by lovingkindness, make it our vehicle, make it our basis, stabilize it, exercise ourselves in it, and fully perfect it. 
+Quote: Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort. 
 
-By: The Buddha
+By: Franklin D. Roosevelt
