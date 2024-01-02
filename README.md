@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain. 
+Quote: No man was ever wise by chance. 
 
-By: Oprah Winfrey
+By: Seneca the Younger
