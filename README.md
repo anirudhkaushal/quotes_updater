@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No man was ever wise by chance. 
+Quote: Can miles truly separate you from friends... If you want to be with someone you love, aren't you already there? 
 
-By: Seneca the Younger
+By: Richard Bach
