@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness. 
+Quote: Every man is a volume if you know how to read him. 
 
-By: Dalai Lama
+By: William Ellery Channing
