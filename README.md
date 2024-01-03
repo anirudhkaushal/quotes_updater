@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He is no fool who gives what he cannot keep to gain what he cannot lose. 
+Quote: Life is the flower for which love is the honey. 
 
-By: Jim Elliot
+By: Victor Hugo
