@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life is the flower for which love is the honey. 
+Quote: If you do not change direction, you may end up where you are heading. 
 
-By: Victor Hugo
+By: Laozi
