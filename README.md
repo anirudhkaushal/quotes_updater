@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The language of friendship is not words but meanings. 
+Quote: He is no fool who gives what he cannot keep to gain what he cannot lose. 
 
-By: Henry David Thoreau
+By: Jim Elliot
