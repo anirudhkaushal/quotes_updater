@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you do not change direction, you may end up where you are heading. 
+Quote: I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me. 
 
-By: Laozi
+By: Woody Allen
