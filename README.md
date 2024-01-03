@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me. 
+Quote: There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness. 
 
-By: Woody Allen
+By: Dalai Lama
