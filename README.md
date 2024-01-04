@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Myths which are believed in tend to become true. 
+Quote: I will prepare and some day my chance will come. 
 
-By: George Orwell
+By: Abraham Lincoln
