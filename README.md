@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I will prepare and some day my chance will come. 
+Quote: Nobody will believe in you unless you believe in yourself. 
 
-By: Abraham Lincoln
+By: Liberace
