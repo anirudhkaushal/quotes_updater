@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Every man is a volume if you know how to read him. 
+Quote: Life is really simple, but we insist on making it complicated. 
 
-By: William Ellery Channing
+By: Confucius
