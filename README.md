@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A friend in power is a friend lost. 
+Quote: A successful person is one who can lay a firm foundation with the bricks that others throw at him or her. 
 
-By: Henry Adams
+By: David Brinkley
