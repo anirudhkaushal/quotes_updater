@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I never worry about action, but only inaction. 
+Quote: A friend in power is a friend lost. 
 
-By: Winston Churchill
+By: Henry Adams
