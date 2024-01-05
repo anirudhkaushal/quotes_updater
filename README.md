@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: And the attitude of faith is the very opposite of clinging to belief, of holding on. 
+Quote: I never worry about action, but only inaction. 
 
-By: Alan Watts
+By: Winston Churchill
