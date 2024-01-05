@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A successful person is one who can lay a firm foundation with the bricks that others throw at him or her. 
+Quote: He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care. 
 
-By: David Brinkley
+By: William C. Menninger
