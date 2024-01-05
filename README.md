@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Communications tools don't get socially interesting until they get technologically boring. 
+Quote: And the attitude of faith is the very opposite of clinging to belief, of holding on. 
 
-By: Clay Shirky
+By: Alan Watts
