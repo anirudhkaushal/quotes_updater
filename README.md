@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Nobody will believe in you unless you believe in yourself. 
+Quote: Communications tools don't get socially interesting until they get technologically boring. 
 
-By: Liberace
+By: Clay Shirky
