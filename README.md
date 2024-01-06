@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do. 
+Quote: Act as if what you do makes a difference. It does. 
 
-By: Kahlil Gibran
+By: William James
