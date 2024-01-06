@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To know oneself is to study oneself in action with another person. 
+Quote: If there is no struggle, there is no progress. 
 
-By: Bruce Lee
+By: Frederick Douglass
