@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Act as if what you do makes a difference. It does. 
+Quote: The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own. 
 
-By: William James
+By: Laozi
