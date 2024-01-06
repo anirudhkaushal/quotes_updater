@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care. 
+Quote: I love wisdom. And you can never be great at anything unless you love it. Not be in love with it, but love the thing, admire the thing. And it seems that if you love the thing, and you don't just want to possess it, it will find you. 
 
-By: William C. Menninger
+By: Maya Angelou
