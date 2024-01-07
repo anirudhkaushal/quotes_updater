@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Inspiration exists, but it has to find us working. 
+Quote: Eighty percent of success is showing up. 
 
-By: Pablo Picasso
+By: Woody Allen
