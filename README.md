@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No party has a monopoly on wisdom. No democracy works without compromise. 
+Quote: Inspiration exists, but it has to find us working. 
 
-By: Barack Obama
+By: Pablo Picasso
