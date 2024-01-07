@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Waste no more time arguing about what a good man should be. Be one. 
+Quote: No garden is without its weeds. 
 
-By: Marcus Aurelius
+By: Thomas Fuller
