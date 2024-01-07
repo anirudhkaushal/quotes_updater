@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All difficult things have their origin in that which is easy, and great things in that which is small. 
+Quote: Waste no more time arguing about what a good man should be. Be one. 
 
-By: Laozi
+By: Marcus Aurelius
