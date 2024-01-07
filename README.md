@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No garden is without its weeds. 
+Quote: No party has a monopoly on wisdom. No democracy works without compromise. 
 
-By: Thomas Fuller
+By: Barack Obama
