@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own. 
+Quote: All difficult things have their origin in that which is easy, and great things in that which is small. 
 
 By: Laozi
