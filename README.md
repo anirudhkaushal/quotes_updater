@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Know, first, who you are, and then adorn yourself accordingly. 
+Quote: The more you like yourself, the less you are like anyone else, which makes you unique. 
 
-By: Epictetus
+By: Walt Disney
