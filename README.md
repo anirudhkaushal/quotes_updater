@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Eighty percent of success is showing up. 
+Quote: They must often change, who would be constant in happiness or wisdom. 
 
-By: Woody Allen
+By: Confucius
