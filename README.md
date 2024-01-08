@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Yesterday I dared to struggle. Today I dare to win. 
+Quote: The greatest remedy for anger is delay. 
 
-By: Bernadette Devlin
+By: Seneca the Younger
