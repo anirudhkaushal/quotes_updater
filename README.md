@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: They must often change, who would be constant in happiness or wisdom. 
+Quote: One secret of success in life is for a man to be ready for his opportunity when it comes. 
 
-By: Confucius
+By: Benjamin Disraeli
