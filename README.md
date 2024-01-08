@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One secret of success in life is for a man to be ready for his opportunity when it comes. 
+Quote: Yesterday I dared to struggle. Today I dare to win. 
 
-By: Benjamin Disraeli
+By: Bernadette Devlin
