@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The greatest remedy for anger is delay. 
+Quote: Know, first, who you are, and then adorn yourself accordingly. 
 
-By: Seneca the Younger
+By: Epictetus
