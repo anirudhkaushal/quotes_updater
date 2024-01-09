@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life is just a chance to grow a soul. 
+Quote: Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious. 
 
-By: A. Powell Davies
+By: Thomas Aquinas
