@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious. 
+Quote: No man can succeed in a line of endeavor which he does not like. 
 
-By: Thomas Aquinas
+By: Napoleon Hill
