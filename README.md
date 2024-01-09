@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What you do today can improve all your tomorrows. 
+Quote: A really great talent finds its happiness in execution. 
 
-By: Ralph Marston
+By: Johann Wolfgang von Goethe
