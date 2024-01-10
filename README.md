@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A really great talent finds its happiness in execution. 
+Quote: The future is completely open, and we are writing it moment to moment. 
 
-By: Johann Wolfgang von Goethe
+By: Pema Chödrön
