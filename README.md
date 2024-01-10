@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Every man takes the limits of his own field of vision for the limits of the world. 
+Quote: A man's growth is seen in the successive choirs of his friends 
 
-By: Arthur Schopenhauer
+By: Ralph Waldo Emerson
