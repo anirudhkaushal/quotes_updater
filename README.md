@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The future is completely open, and we are writing it moment to moment. 
+Quote: Coming together is a beginning; keeping together is progress; working together is success. 
 
-By: Pema Chödrön
+By: Edward Everett Hale
