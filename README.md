@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Coming together is a beginning; keeping together is progress; working together is success. 
+Quote: If you correct your mind, the rest of your life will fall into place. 
 
-By: Edward Everett Hale
+By: Laozi
