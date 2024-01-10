@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The self is not something ready-made, but something in continuous formation through choice of action. 
+Quote: Every man takes the limits of his own field of vision for the limits of the world. 
 
-By: John Dewey
+By: Arthur Schopenhauer
