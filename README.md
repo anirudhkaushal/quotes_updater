@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing. 
+Quote: When one tugs at a single thing in nature, he finds it attached to the rest of the world. 
 
-By: Margaret Thatcher
+By: John Muir
