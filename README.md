@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Things are as they are. Looking out into it the universe at night, we make no comparisons between right and wrong stars, nor between well and badly arranged constellations. 
+Quote: Pure, holy simplicity confounds all the wisdom of this world and the wisdom of the flesh. 
 
-By: Alan Watts
+By: Francis of Assisi
