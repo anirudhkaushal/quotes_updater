@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In all things of nature there is something of the marvelous. 
+Quote: If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing. 
 
-By: Aristotle
+By: Margaret Thatcher
