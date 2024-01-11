@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend. 
+Quote: Things are as they are. Looking out into it the universe at night, we make no comparisons between right and wrong stars, nor between well and badly arranged constellations. 
 
-By: Thomas Jefferson
+By: Alan Watts
