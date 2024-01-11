@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Pure, holy simplicity confounds all the wisdom of this world and the wisdom of the flesh. 
+Quote: In all things of nature there is something of the marvelous. 
 
-By: Francis of Assisi
+By: Aristotle
