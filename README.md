@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A man's growth is seen in the successive choirs of his friends 
+Quote: I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend. 
 
-By: Ralph Waldo Emerson
+By: Thomas Jefferson
