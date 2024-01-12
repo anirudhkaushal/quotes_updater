@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Opportunity is missed by most because it is dressed in overalls and looks like work. 
+Quote: Write your plans in pencil and give God the eraser. 
 
-By: Thomas Edison
+By: Paulo Coelho
