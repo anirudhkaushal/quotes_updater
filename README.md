@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The thoughts we choose to think are the tools we use to paint the canvas of our lives. 
+Quote: Nothing but heaven itself is better than a friend who is really a friend. 
 
-By: Louise Hay
+By: Plautus
