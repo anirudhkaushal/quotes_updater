@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When one tugs at a single thing in nature, he finds it attached to the rest of the world. 
+Quote: Opportunity is missed by most because it is dressed in overalls and looks like work. 
 
-By: John Muir
+By: Thomas Edison
