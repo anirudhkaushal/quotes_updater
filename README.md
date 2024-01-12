@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Nothing but heaven itself is better than a friend who is really a friend. 
+Quote: Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently. 
 
-By: Plautus
+By: William Arthur Ward
