@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Write your plans in pencil and give God the eraser. 
+Quote: The thoughts we choose to think are the tools we use to paint the canvas of our lives. 
 
-By: Paulo Coelho
+By: Louise Hay
