@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Without passion man is a mere latent force and possibility, like the flint which awaits the shock of the iron before it can give forth its spark. 
+Quote: Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either. 
 
-By: Henri-Frédéric Amiel
+By: Albert Einstein
