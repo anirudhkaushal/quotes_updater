@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Gravitation cannot be held responsible for people falling in love. How on earth can you explain in terms of chemistry and physics so important a biological phenomenon as first love? Put your hand on a stove for a minute and it seems like an hour. Sit with that special girl for an hour and it seems like a minute. That's relativity. 
+Quote: Without passion man is a mere latent force and possibility, like the flint which awaits the shock of the iron before it can give forth its spark. 
 
-By: Albert Einstein
+By: Henri-Frédéric Amiel
