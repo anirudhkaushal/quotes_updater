@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him. 
+Quote: Good luck is another name for tenacity of purpose. 
 
 By: Ralph Waldo Emerson
