@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: With pride, there are many curses. With humility, there come many blessings. 
+Quote: Genius unrefined resembles a flash of lightning, but wisdom is like the sun. 
 
-By: Ezra Taft Benson
+By: Franz Grillparzer
