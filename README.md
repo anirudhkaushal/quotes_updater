@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Good luck is another name for tenacity of purpose. 
+Quote: With pride, there are many curses. With humility, there come many blessings. 
 
-By: Ralph Waldo Emerson
+By: Ezra Taft Benson
