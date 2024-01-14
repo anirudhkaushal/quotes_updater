@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it. 
+Quote: Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him. 
 
-By: W. Clement Stone
+By: Ralph Waldo Emerson
