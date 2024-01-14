@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Genius unrefined resembles a flash of lightning, but wisdom is like the sun. 
+Quote: The way a team plays as a whole determines its success. You may have the greatest bunch of individual stars in the world, but if they don't play together, the club won't be worth a dime. 
 
-By: Franz Grillparzer
+By: Babe Ruth
