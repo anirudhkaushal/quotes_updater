@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: 'As I am, so are they; as they are, so am I.' Comparing others with oneself, do not kill nor cause others to kill. 
+Quote: When you reach the end of your rope, tie a knot in it and hang on. 
 
-By: The Buddha
+By: Franklin D. Roosevelt
