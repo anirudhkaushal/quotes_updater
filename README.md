@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love is blind; friendship closes its eyes. 
+Quote: Never complain and never explain. 
 
-By: Friedrich Nietzsche
+By: Benjamin Disraeli
