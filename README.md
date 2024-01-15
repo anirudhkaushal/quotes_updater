@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you reach the end of your rope, tie a knot in it and hang on. 
+Quote: If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him. 
 
-By: Franklin D. Roosevelt
+By: Ralph Waldo Emerson
