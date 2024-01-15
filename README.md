@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Trouble is only opportunity in work clothes. 
+Quote: Love is blind; friendship closes its eyes. 
 
-By: Henry J. Kaiser
+By: Friedrich Nietzsche
