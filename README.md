@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning. 
+Quote: You can't stop the waves, but you can learn to surf. 
 
-By: Winston Churchill
+By: Jon Kabat-Zinn
