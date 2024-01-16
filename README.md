@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A really great talent finds its happiness in execution. 
+Quote: Until you make peace with who you are, you will never be content with what you have. 
 
-By: Johann Wolfgang von Goethe
+By: Doris Mortman
