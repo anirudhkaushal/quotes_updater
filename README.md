@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You can't stop the waves, but you can learn to surf. 
+Quote: Life is divided into the horrible and the miserable. 
 
-By: Jon Kabat-Zinn
+By: Woody Allen
