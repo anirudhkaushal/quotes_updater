@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it. 
+Quote: In romance, we feel the need to zoom in and expound on our partner's foibles in intimate detail; in friendship, we tend to do the opposite, avoiding confrontation through fear, lethargy or both. 
 
-By: Charlotte Perkins Gilman
+By: Mariella Frostrup
