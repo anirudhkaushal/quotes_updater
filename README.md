@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In romance, we feel the need to zoom in and expound on our partner's foibles in intimate detail; in friendship, we tend to do the opposite, avoiding confrontation through fear, lethargy or both. 
+Quote: Those who dare to fail miserably can achieve greatly. 
 
-By: Mariella Frostrup
+By: John F. Kennedy
