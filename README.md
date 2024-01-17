@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The world is a book, and those who do not travel read only a page. 
+Quote: The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it. 
 
-By: Augustine of Hippo
+By: Charlotte Perkins Gilman
