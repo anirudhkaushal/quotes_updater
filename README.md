@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes. 
+Quote: The best thing about the future is that it only comes one day at a time. 
 
-By: Dalai Lama
+By: Abraham Lincoln
