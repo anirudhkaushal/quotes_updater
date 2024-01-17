@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The best thing about the future is that it only comes one day at a time. 
+Quote: The world is a book, and those who do not travel read only a page. 
 
-By: Abraham Lincoln
+By: Augustine of Hippo
