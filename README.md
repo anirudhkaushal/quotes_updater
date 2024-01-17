@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Until you make peace with who you are, you will never be content with what you have. 
+Quote: Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes. 
 
-By: Doris Mortman
+By: Dalai Lama
