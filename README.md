@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship without self-interest is one of the rare and beautiful things of life. 
+Quote: Genius unrefined resembles a flash of lightning, but wisdom is like the sun. 
 
-By: James F. Byrnes
+By: Franz Grillparzer
