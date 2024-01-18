@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Practice yourself, for heaven's sake in little things, and then proceed to greater. 
+Quote: Friendship without self-interest is one of the rare and beautiful things of life. 
 
-By: Epictetus
+By: James F. Byrnes
