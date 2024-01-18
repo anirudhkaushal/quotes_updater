@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Those who dare to fail miserably can achieve greatly. 
+Quote: The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth. 
 
-By: John F. Kennedy
+By: Peter Abelard
