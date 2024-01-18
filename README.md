@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Genius unrefined resembles a flash of lightning, but wisdom is like the sun. 
+Quote: The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds. 
 
-By: Franz Grillparzer
+By: Will Durant
