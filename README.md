@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth. 
+Quote: I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime. 
 
-By: Peter Abelard
+By: Elisabeth Kübler-Ross
