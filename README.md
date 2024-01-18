@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime. 
+Quote: Practice yourself, for heaven's sake in little things, and then proceed to greater. 
 
-By: Elisabeth Kübler-Ross
+By: Epictetus
