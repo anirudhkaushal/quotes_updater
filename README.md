@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Never put off till tomorrow what you can do today. 
+Quote: He who knows that enough is enough will always have enough. 
 
-By: Thomas Jefferson
+By: Laozi
