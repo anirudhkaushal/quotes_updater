@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds. 
+Quote: The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart. 
 
-By: Will Durant
+By: Helen Keller
