@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He who knows that enough is enough will always have enough. 
+Quote: Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart. 
 
-By: Laozi
+By: Washington Irving
