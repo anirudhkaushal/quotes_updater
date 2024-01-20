@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love isn't something you find. Love is something that finds you. 
+Quote: I think somehow, we learn who we really are and then live with that decision. 
 
-By: Loretta Young
+By: Eleanor Roosevelt
