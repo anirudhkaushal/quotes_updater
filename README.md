@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Minds are like parachutes. They only function when open. 
+Quote: Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort. 
 
-By: Thomas Dewar
+By: Franklin D. Roosevelt
