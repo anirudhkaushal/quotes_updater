@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living. 
+Quote: The superior man acts before he speaks, and afterwards speaks according to his action. 
 
-By: Nelson Mandela
+By: Confucius
