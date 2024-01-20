@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Honesty is the first chapter in the book of wisdom. 
+Quote: Love isn't something you find. Love is something that finds you. 
 
-By: Thomas Jefferson
+By: Loretta Young
