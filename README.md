@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The superior man acts before he speaks, and afterwards speaks according to his action. 
+Quote: Minds are like parachutes. They only function when open. 
 
-By: Confucius
+By: Thomas Dewar
