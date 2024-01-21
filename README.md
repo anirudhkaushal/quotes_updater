@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is nothing happens to any person but what was in his power to go through with. 
+Quote: You may say I'm a dreamer, but I'm not the only one, I hope someday you will join us, and the world will live as one. 
 
-By: Marcus Aurelius
+By: John Lennon
