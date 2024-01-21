@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You may say I'm a dreamer, but I'm not the only one, I hope someday you will join us, and the world will live as one. 
+Quote: Sadness flies away on the wings of time. 
 
-By: John Lennon
+By: Jean de La Fontaine
