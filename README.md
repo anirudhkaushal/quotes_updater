@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Sadness flies away on the wings of time. 
+Quote: Adversity causes some men to break, others to break records. 
 
-By: Jean de La Fontaine
+By: William Arthur Ward
