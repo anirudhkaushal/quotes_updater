@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What we achieve inwardly will change outer reality. 
+Quote: There is nothing happens to any person but what was in his power to go through with. 
 
-By: Plutarch
+By: Marcus Aurelius
