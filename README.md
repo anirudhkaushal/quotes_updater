@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day. 
+Quote: If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when? 
 
-By: George Foreman
+By: Rabbi Hillel
