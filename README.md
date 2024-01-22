@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Adversity causes some men to break, others to break records. 
+Quote: Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day. 
 
-By: William Arthur Ward
+By: George Foreman
