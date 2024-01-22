@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We must never forget that it is through our actions, words, and thoughts that we have a choice. 
+Quote: Things turn out best for those who make the best of the way things turn out. 
 
-By: Sogyal Rinpoche
+By: Jack Buck
