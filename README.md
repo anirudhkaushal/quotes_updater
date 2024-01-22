@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when? 
+Quote: Give me a lever long enough and a fulcrum on which to place it, and I shall move the world. 
 
-By: Rabbi Hillel
+By: Archimedes
