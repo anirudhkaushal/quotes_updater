@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Things turn out best for those who make the best of the way things turn out. 
+Quote: If you're changing the world, you're working on important things. You're excited to get up in the morning. 
 
-By: Jack Buck
+By: Larry Page
