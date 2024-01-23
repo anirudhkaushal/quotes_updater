@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The secret of getting ahead is getting started. 
+Quote: There is not one big cosmic meaning for all, there is only the meaning we each give to our life. 
 
-By: Mark Twain
+By: Anaïs Nin
