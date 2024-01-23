@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom. 
+Quote: The secret of getting ahead is getting started. 
 
-By: The Buddha
+By: Mark Twain
