@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you're changing the world, you're working on important things. You're excited to get up in the morning. 
+Quote: Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom. 
 
-By: Larry Page
+By: The Buddha
