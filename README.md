@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Happiness is found in doing, not merely possessing. 
+Quote: Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer. 
 
-By: Napoleon Hill
+By: Robert Graves
