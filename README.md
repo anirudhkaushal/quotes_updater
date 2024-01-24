@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Do not go where the path may lead, go instead where there is no path and leave a trail. 
+Quote: Imagination is the highest kite one can fly. 
 
-By: Ralph Waldo Emerson
+By: Lauren Bacall
