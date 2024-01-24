@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer. 
+Quote: As an elephant in the battlefield withstands arrows shot from bows all around, even so shall I endure abuse. 
 
-By: Robert Graves
+By: The Buddha
