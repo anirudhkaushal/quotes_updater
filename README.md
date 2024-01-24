@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: As an elephant in the battlefield withstands arrows shot from bows all around, even so shall I endure abuse. 
+Quote: Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years. 
 
-By: The Buddha
+By: Richard Bach
