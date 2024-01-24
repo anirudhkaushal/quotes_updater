@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years. 
+Quote: The truth you believe and cling to makes you unavailable to hear anything new. 
 
-By: Richard Bach
+By: Pema Chödrön
