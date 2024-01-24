@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The truth you believe and cling to makes you unavailable to hear anything new. 
+Quote: Life has no blessing like a prudent friend. 
 
-By: Pema Chödrön
+By: Euripides
