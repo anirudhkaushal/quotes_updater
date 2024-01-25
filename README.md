@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink. 
+Quote: Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one. 
 
-By: Sophocles
+By: Diogenes
