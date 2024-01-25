@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Don't turn away from possible futures before you're certain you don't have anything to learn from them. 
+Quote: Don't smother each other. No one can grow in the shade. 
 
-By: Richard Bach
+By: Leo Buscaglia
