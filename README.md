@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Imagination is the highest kite one can fly. 
+Quote: Don't turn away from possible futures before you're certain you don't have anything to learn from them. 
 
-By: Lauren Bacall
+By: Richard Bach
