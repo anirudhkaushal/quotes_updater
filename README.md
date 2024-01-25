@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one. 
+Quote: Be slow to fall into friendship; but when thou art in, continue firm and constant. 
 
-By: Diogenes
+By: Isocrates
