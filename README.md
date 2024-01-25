@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Don't smother each other. No one can grow in the shade. 
+Quote: If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink. 
 
-By: Leo Buscaglia
+By: Sophocles
