@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Until you make peace with who you are, you will never be content with what you have. 
+Quote: Habit, if not resisted, soon becomes necessity. 
 
-By: Doris Mortman
+By: Augustine of Hippo
