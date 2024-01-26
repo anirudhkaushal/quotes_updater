@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Listen to what you know instead of what you fear. 
+Quote: Until you make peace with who you are, you will never be content with what you have. 
 
-By: Richard Bach
+By: Doris Mortman
