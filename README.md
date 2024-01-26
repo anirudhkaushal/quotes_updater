@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The thing always happens that you really believe in; and the belief in a thing makes it happen. 
+Quote: Listen to what you know instead of what you fear. 
 
-By: Frank Lloyd Wright
+By: Richard Bach
