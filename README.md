@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To find a man's true character, play golf with him. 
+Quote: Creativity comes from trust. Trust your instincts. And never hope more than you work. 
 
-By: P. G. Wodehouse
+By: Rita Mae Brown
