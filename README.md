@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Habit, if not resisted, soon becomes necessity. 
+Quote: To find a man's true character, play golf with him. 
 
-By: Augustine of Hippo
+By: P. G. Wodehouse
