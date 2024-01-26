@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Be slow to fall into friendship; but when thou art in, continue firm and constant. 
+Quote: The thing always happens that you really believe in; and the belief in a thing makes it happen. 
 
-By: Isocrates
+By: Frank Lloyd Wright
