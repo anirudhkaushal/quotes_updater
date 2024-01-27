@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Creativity comes from trust. Trust your instincts. And never hope more than you work. 
+Quote: Love does not consist of gazing at each other, but in looking together in the same direction. 
 
-By: Rita Mae Brown
+By: Antoine de Saint-Exupéry
