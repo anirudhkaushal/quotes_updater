@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The first step to getting the things you want out of life is this: decide what you want. 
+Quote: If you have one true friend, you have more than your share. 
 
-By: Ben Stein
+By: Thomas Fuller
