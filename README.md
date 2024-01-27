@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you have one true friend, you have more than your share. 
+Quote: Three things cannot be long hidden: the sun, the moon, and the truth. 
 
-By: Thomas Fuller
+By: The Buddha
