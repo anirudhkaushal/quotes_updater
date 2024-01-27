@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love does not consist of gazing at each other, but in looking together in the same direction. 
+Quote: Nothing ever goes away until it has taught us what we need to know. 
 
-By: Antoine de Saint-Exupéry
+By: Pema Chödrön
