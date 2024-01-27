@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Nothing ever goes away until it has taught us what we need to know. 
+Quote: I have done my best: that is about all the philosophy of living one needs. 
 
-By: Pema Chödrön
+By: Lin Yutang
