@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us. 
+Quote: Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future. 
 
-By: Helen Keller
+By: Dale Turner
