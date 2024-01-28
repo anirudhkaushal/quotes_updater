@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future. 
+Quote: Every artist dips his brush in his own soul, and paints his own nature into his pictures. 
 
-By: Dale Turner
+By: Henry Ward Beecher
