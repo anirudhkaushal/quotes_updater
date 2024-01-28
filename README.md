@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The ego is nothing other than the focus of conscious attention. 
+Quote: When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us. 
 
-By: Alan Watts
+By: Helen Keller
