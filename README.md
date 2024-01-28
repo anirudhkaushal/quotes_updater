@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A man should look for what is, and not for what he thinks should be. 
+Quote: To free us from the expectations of others, to give us back to ourselves... there lies the great, singular power of self-respect. 
 
-By: Albert Einstein
+By: Joan Didion
