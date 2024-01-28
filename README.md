@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Every artist dips his brush in his own soul, and paints his own nature into his pictures. 
+Quote: A man should look for what is, and not for what he thinks should be. 
 
-By: Henry Ward Beecher
+By: Albert Einstein
