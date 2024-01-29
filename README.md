@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Well begun is half done. 
+Quote: The greatest remedy for anger is delay. 
 
-By: Aristotle
+By: Seneca the Younger
