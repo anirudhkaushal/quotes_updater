@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you reach the end of your rope, tie a knot in it and hang on. 
+Quote: The two most powerful warriors are patience and time. 
 
-By: Franklin D. Roosevelt
+By: Leo Tolstoy
