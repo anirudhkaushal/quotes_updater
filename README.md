@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To free us from the expectations of others, to give us back to ourselves... there lies the great, singular power of self-respect. 
+Quote: But at any rate, the point is that God is what nobody admits to being, and everybody really is. 
 
-By: Joan Didion
+By: Alan Watts
