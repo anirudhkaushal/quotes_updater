@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: But at any rate, the point is that God is what nobody admits to being, and everybody really is. 
+Quote: Well begun is half done. 
 
-By: Alan Watts
+By: Aristotle
