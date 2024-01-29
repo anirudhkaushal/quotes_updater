@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We never understand how little we need in this world until we know the loss of it. 
+Quote: When you reach the end of your rope, tie a knot in it and hang on. 
 
-By: J. M. Barrie
+By: Franklin D. Roosevelt
