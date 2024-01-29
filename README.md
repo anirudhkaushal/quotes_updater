@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The greatest remedy for anger is delay. 
+Quote: We never understand how little we need in this world until we know the loss of it. 
 
-By: Seneca the Younger
+By: J. M. Barrie
