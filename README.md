@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: With age comes wisdom and a high sex drive. And the wisdom to enjoy it. 
+Quote: By living deeply in the present moment we can understand the past better and we can prepare for a better future. 
 
-By: Amber Valletta
+By: Thích Nhất Hạnh
