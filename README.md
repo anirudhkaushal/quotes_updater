@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: This is the final test of a gentleman: his respect for those who can be of no possible value to him. 
+Quote: Speak when you are angry, and you will make the best speech you will ever regret. 
 
-By: William Lyon Phelps
+By: Ambrose Bierce
