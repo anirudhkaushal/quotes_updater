@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The two most powerful warriors are patience and time. 
+Quote: With age comes wisdom and a high sex drive. And the wisdom to enjoy it. 
 
-By: Leo Tolstoy
+By: Amber Valletta
