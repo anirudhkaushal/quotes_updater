@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The only Zen you find on the tops of mountains is the Zen you bring up there. 
+Quote: You can't shake hands with a clenched fist. 
 
-By: Robert M. Pirsig
+By: Indira Gandhi
