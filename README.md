@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You can't shake hands with a clenched fist. 
+Quote: It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree. 
 
-By: Indira Gandhi
+By: Elbert Hubbard
