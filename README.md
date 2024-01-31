@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree. 
+Quote: One loyal friend is worth ten thousand relatives. 
 
-By: Elbert Hubbard
+By: Euripides
