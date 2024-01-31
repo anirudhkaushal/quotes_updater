@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Speak when you are angry, and you will make the best speech you will ever regret. 
+Quote: The road of excess leads to the palace of wisdom. 
 
-By: Ambrose Bierce
+By: William Blake
