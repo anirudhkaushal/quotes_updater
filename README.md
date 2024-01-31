@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The road of excess leads to the palace of wisdom. 
+Quote: Genius is one per cent inspiration, ninety-nine per cent perspiration. 
 
-By: William Blake
+By: Thomas Edison
