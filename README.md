@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Genius is one per cent inspiration, ninety-nine per cent perspiration. 
+Quote: The only Zen you find on the tops of mountains is the Zen you bring up there. 
 
-By: Thomas Edison
+By: Robert M. Pirsig
