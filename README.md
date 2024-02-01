@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are. 
+Quote: One may say the eternal mystery of the world is its comprehensibility. 
 
-By: Bernice Reagon
+By: Albert Einstein
