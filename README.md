@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One loyal friend is worth ten thousand relatives. 
+Quote: Our distrust is very expensive. 
 
-By: Euripides
+By: Ralph Waldo Emerson
