@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If the shoe doesn't fit, must we change the foot? 
+Quote: Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others 
 
-By: Gloria Steinem
+By: The Buddha
