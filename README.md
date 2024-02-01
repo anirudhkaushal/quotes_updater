@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One may say the eternal mystery of the world is its comprehensibility. 
+Quote: If the shoe doesn't fit, must we change the foot? 
 
-By: Albert Einstein
+By: Gloria Steinem
