@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich. 
+Quote: Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are. 
 
-By: Muhammad Ali
+By: Bernice Reagon
