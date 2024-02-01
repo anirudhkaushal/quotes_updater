@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our distrust is very expensive. 
+Quote: To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich. 
 
-By: Ralph Waldo Emerson
+By: Muhammad Ali
