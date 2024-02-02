@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: With the realization of one's own potential and self-confidence in one's ability, one can build a better world. 
+Quote: Imagination is the living power and prime agent of all human perception. 
 
-By: Dalai Lama
+By: Samuel Taylor Coleridge
