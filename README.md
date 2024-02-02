@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I find hope in the darkest of days, and focus in the brightest. I do not judge the universe. 
+Quote: An optimist is a person who sees a green light everywhere, while the pessimist sees only the red spotlight... The truly wise person is color-blind. 
 
-By: Dalai Lama
+By: Albert Schweitzer
