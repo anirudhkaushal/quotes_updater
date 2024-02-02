@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Until you make peace with who you are, you will never be content with what you have. 
+Quote: I find hope in the darkest of days, and focus in the brightest. I do not judge the universe. 
 
-By: Doris Mortman
+By: Dalai Lama
