@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: An optimist is a person who sees a green light everywhere, while the pessimist sees only the red spotlight... The truly wise person is color-blind. 
+Quote: This is why I loved technology: if you used it right, it could give you power and privacy. 
 
-By: Albert Schweitzer
+By: Cory Doctorow
