@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Much though he recites the sacred texts, but acts not accordingly, that heedless man is like a cowherd who only counts the cows of others 
+Quote: With the realization of one's own potential and self-confidence in one's ability, one can build a better world. 
 
-By: The Buddha
+By: Dalai Lama
