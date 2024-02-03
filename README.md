@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge. 
+Quote: Love is blind; friendship closes its eyes. 
 
-By: Daniel J. Boorstin
+By: Friedrich Nietzsche
