@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice. 
+Quote: Wishing to be friends is quick work, but friendship is a slow ripening fruit. 
 
-By: Richard Bach
+By: Aristotle
