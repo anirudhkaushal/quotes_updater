@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. 
+Quote: The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge. 
 
-By: Morris West
+By: Daniel J. Boorstin
