@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love is blind; friendship closes its eyes. 
+Quote: In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice. 
 
-By: Friedrich Nietzsche
+By: Richard Bach
