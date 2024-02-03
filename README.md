@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: This is why I loved technology: if you used it right, it could give you power and privacy. 
+Quote: If you spend your whole life waiting for the storm, you'll never enjoy the sunshine. 
 
-By: Cory Doctorow
+By: Morris West
