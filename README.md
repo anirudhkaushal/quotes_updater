@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wishing to be friends is quick work, but friendship is a slow ripening fruit. 
+Quote: I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex. 
 
-By: Aristotle
+By: Kurt Vonnegut
