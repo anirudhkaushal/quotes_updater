@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will. 
+Quote: We make a living by what we get, but we make a life by what we give. 
 
-By: Epictetus
+By: Winston Churchill
