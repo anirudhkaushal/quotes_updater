@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I don't believe in failure. It's not failure if you enjoyed the process. 
+Quote: There is no way to happiness, happiness is the way. 
 
-By: Oprah Winfrey
+By: Thích Nhất Hạnh
