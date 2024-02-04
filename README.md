@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex. 
+Quote: Don't compromise yourself. You are all you've got. 
 
-By: Kurt Vonnegut
+By: Janis Joplin
