@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Whoever is happy will make others happy, too. 
+Quote: I don't believe in failure. It's not failure if you enjoyed the process. 
 
-By: Mark Twain
+By: Oprah Winfrey
