@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns. 
+Quote: Never explain - your friends do not need it and your enemies will not believe you anyway. 
 
-By: Bruce Lee
+By: Elbert Hubbard
