@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Intuition will tell the thinking mind where to look next. 
+Quote: All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns. 
 
-By: Jonas Salk
+By: Bruce Lee
