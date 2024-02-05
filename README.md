@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is no way to happiness, happiness is the way. 
+Quote: Friendship is essentially a partnership. 
 
-By: Thích Nhất Hạnh
+By: Aristotle
