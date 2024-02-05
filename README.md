@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A friend to all is a friend to none. 
+Quote: Adopt the pace of nature: her secret is patience. 
 
-By: Aristotle
+By: Ralph Waldo Emerson
