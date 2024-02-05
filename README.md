@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship is essentially a partnership. 
+Quote: Intuition will tell the thinking mind where to look next. 
 
-By: Aristotle
+By: Jonas Salk
