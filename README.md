@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is the quality of our work which will please God, not the quantity. 
+Quote: If you do what you've always done, you'll get what you've always gotten. 
 
-By: Mahatma Gandhi
+By: Tony Robbins
