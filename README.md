@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you do what you've always done, you'll get what you've always gotten. 
+Quote: It has long been an axiom of mine that the little things are infinitely the most important. 
 
-By: Tony Robbins
+By: Arthur Conan Doyle
