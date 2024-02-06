@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is on our failures that we base a new and different and better success. 
+Quote: Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world. 
 
-By: Havelock Ellis
+By: Blaise Pascal
