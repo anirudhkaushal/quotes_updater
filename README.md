@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Those that know, do. Those that understand, teach. 
+Quote: It is on our failures that we base a new and different and better success. 
 
-By: Aristotle
+By: Havelock Ellis
