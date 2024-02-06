@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Adopt the pace of nature: her secret is patience. 
+Quote: It is the quality of our work which will please God, not the quantity. 
 
-By: Ralph Waldo Emerson
+By: Mahatma Gandhi
