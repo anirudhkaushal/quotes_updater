@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Be your own hero, it's cheaper than a movie ticket. 
+Quote: Courage is going from failure to failure without losing enthusiasm. 
 
-By: Doug Horton
+By: Winston Churchill
