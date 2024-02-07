@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The place to improve the world is first in one's own heart and head and hands. 
+Quote: Be your own hero, it's cheaper than a movie ticket. 
 
-By: Robert M. Pirsig
+By: Doug Horton
