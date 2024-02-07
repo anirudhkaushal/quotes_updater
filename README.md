@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is nothing so useless as doing efficiently that which should not be done at all. 
+Quote: All phenomena are preceded by the mind, created by the mind, and have the mind as their master. 
 
-By: Peter Drucker
+By: The Buddha
