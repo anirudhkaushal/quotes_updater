@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Once we accept our limits, we go beyond them. 
+Quote: There is nothing so useless as doing efficiently that which should not be done at all. 
 
-By: Albert Einstein
+By: Peter Drucker
