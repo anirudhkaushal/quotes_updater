@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world. 
+Quote: The place to improve the world is first in one's own heart and head and hands. 
 
-By: Blaise Pascal
+By: Robert M. Pirsig
