@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Courage is going from failure to failure without losing enthusiasm. 
+Quote: Once we accept our limits, we go beyond them. 
 
-By: Winston Churchill
+By: Albert Einstein
