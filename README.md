@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Sincerity is the way of Heaven. The attainment of sincerity is the way of men. 
+Quote: Meaning is not what you start with but what you end up with. 
 
-By: Confucius
+By: Peter Elbow
