@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Treat people as if they were what they ought to be, and you help them to become what they are capable of being. 
+Quote: The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly. 
 
-By: Johann Wolfgang von Goethe
+By: Richard Bach
