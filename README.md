@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Give me six hours to chop down a tree and I will spend the first four sharpening the axe. 
+Quote: We must embrace pain and burn it as fuel for our journey. 
 
-By: Abraham Lincoln
+By: Kenji Miyazawa
