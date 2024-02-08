@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We must embrace pain and burn it as fuel for our journey. 
+Quote: Treat people as if they were what they ought to be, and you help them to become what they are capable of being. 
 
-By: Kenji Miyazawa
+By: Johann Wolfgang von Goethe
