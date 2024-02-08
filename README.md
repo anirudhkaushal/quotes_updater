@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All phenomena are preceded by the mind, created by the mind, and have the mind as their master. 
+Quote: Give me six hours to chop down a tree and I will spend the first four sharpening the axe. 
 
-By: The Buddha
+By: Abraham Lincoln
