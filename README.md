@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Make the best use of what is in your power and take the rest as it happens. 
+Quote: I want you to be everything that's you, deep at the center of your being. 
 
-By: Epictetus
+By: Confucius
