@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Time changes everything except something within us which is always surprised by change. 
+Quote: Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity. 
 
-By: Thomas Hardy
+By: Louis Pasteur
