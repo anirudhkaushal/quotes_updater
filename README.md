@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Meaning is not what you start with but what you end up with. 
+Quote: Success consists of going from failure to failure without loss of enthusiasm. 
 
-By: Peter Elbow
+By: Winston Churchill
