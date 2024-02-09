@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A house divided against itself cannot stand. 
+Quote: Time changes everything except something within us which is always surprised by change. 
 
-By: Abraham Lincoln
+By: Thomas Hardy
