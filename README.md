@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Success consists of going from failure to failure without loss of enthusiasm. 
+Quote: Make the best use of what is in your power and take the rest as it happens. 
 
-By: Winston Churchill
+By: Epictetus
