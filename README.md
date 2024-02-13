@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Don't compromise yourself. You are all you've got. 
+Quote: There never was a good knife made of bad steel. 
 
-By: Janis Joplin
+By: Benjamin Franklin
