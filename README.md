@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech. 
+Quote: By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm. 
 
-By: Benjamin Franklin
+By: Dalai Lama
