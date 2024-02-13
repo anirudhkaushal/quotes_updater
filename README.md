@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity. 
+Quote: Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success. 
 
-By: Louis Pasteur
+By: Swami Vivekananda
