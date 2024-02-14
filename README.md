@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Trust is the lubrication that makes it possible for organizations to work. 
+Quote: One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity. 
 
-By: Warren Bennis
+By: Albert Schweitzer
