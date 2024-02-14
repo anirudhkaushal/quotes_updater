@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Nothing ever goes away until it has taught us what we need to know. 
+Quote: If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience. 
 
-By: Pema Chödrön
+By: Robert Fulghum
