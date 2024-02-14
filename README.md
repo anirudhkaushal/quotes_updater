@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience. 
+Quote: I'd rather attempt to do something great and fail than to attempt to do nothing and succeed. 
 
-By: Robert Fulghum
+By: Robert Schuller
