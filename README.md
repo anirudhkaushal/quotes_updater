@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I'd rather attempt to do something great and fail than to attempt to do nothing and succeed. 
+Quote: Trust is the lubrication that makes it possible for organizations to work. 
 
-By: Robert Schuller
+By: Warren Bennis
