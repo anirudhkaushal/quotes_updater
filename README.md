@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity. 
+Quote: Fear grows in darkness; if you think there's a bogeyman around, turn on the light. 
 
-By: Albert Schweitzer
+By: Dorothy Thompson
