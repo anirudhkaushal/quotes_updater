@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm. 
+Quote: Nothing ever goes away until it has taught us what we need to know. 
 
-By: Dalai Lama
+By: Pema Chödrön
