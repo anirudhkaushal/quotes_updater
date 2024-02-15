@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy. 
+Quote: Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all. 
 
-By: Thích Nhất Hạnh
+By: Dale Carnegie
