@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Fear grows in darkness; if you think there's a bogeyman around, turn on the light. 
+Quote: Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy. 
 
-By: Dorothy Thompson
+By: Thích Nhất Hạnh
