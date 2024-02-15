@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You must welcome change as the rule but not as your ruler. 
+Quote: Nature and books belong to the eyes that see them. 
 
-By: Denis Waitley
+By: Ralph Waldo Emerson
