@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed. 
+Quote: You must welcome change as the rule but not as your ruler. 
 
-By: Blaise Pascal
+By: Denis Waitley
