@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Lose an hour in the morning, and you will spend all day looking for it. 
+Quote: On every thorn, delightful wisdom grows, in every rill a sweet instruction flows. 
 
-By: Richard Whately
+By: Edward Young
