@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Nature and books belong to the eyes that see them. 
+Quote: We must embrace pain and burn it as fuel for our journey. 
 
-By: Ralph Waldo Emerson
+By: Kenji Miyazawa
