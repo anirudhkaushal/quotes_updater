@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We must embrace pain and burn it as fuel for our journey. 
+Quote: Most powerful is he who has himself in his own power. 
 
-By: Kenji Miyazawa
+By: Seneca the Younger
