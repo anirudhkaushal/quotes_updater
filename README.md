@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Most powerful is he who has himself in his own power. 
+Quote: Don't watch the clock; do what it does. Keep going. 
 
-By: Seneca the Younger
+By: Sam Levenson
