@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: On every thorn, delightful wisdom grows, in every rill a sweet instruction flows. 
+Quote: The only limit to our realization of tomorrow will be our doubts of today. 
 
-By: Edward Young
+By: Franklin D. Roosevelt
