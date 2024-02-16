@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Don't watch the clock; do what it does. Keep going. 
+Quote: Lose an hour in the morning, and you will spend all day looking for it. 
 
-By: Sam Levenson
+By: Richard Whately
