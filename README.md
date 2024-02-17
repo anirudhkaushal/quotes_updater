@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Impossibilities are merely things which we have not yet learned. 
+Quote: Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. 
 
-By: Charles W. Chesnutt
+By: Winston Churchill
