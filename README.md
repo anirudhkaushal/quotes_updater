@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently. 
+Quote: Knowledge is of no value unless you put it into practice. 
 
-By: William Arthur Ward
+By: Anton Chekhov
