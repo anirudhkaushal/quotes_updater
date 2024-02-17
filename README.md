@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Knowledge is of no value unless you put it into practice. 
+Quote: You do not become good by trying to be good, but by finding the goodness that is already within you. 
 
-By: Anton Chekhov
+By: Eckhart Tolle
