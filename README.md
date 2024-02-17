@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The only limit to our realization of tomorrow will be our doubts of today. 
+Quote: Impossibilities are merely things which we have not yet learned. 
 
-By: Franklin D. Roosevelt
+By: Charles W. Chesnutt
