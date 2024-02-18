@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Be glad of life because it gives you the chance to love, to work, to play, and to look up at the stars. 
+Quote: The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind. 
 
-By: Henry van Dyke Jr.
+By: Kahlil Gibran
