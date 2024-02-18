@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Those who are free of resentful thoughts surely find peace. 
+Quote: As you think, so shall you become. 
 
-By: The Buddha
+By: Bruce Lee
