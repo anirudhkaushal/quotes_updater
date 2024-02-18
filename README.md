@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Honesty is the best policy. 
+Quote: Those who are free of resentful thoughts surely find peace. 
 
-By: Benjamin Franklin
+By: The Buddha
