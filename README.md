@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind. 
+Quote: Even youngish men can acquire wisdom as time goes by. 
 
-By: Kahlil Gibran
+By: John Bercow
