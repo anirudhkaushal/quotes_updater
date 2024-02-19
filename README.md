@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. 
+Quote: The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts. 
 
-By: Uta Hagen
+By: Charles Darwin
