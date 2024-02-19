@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In all chaos there is a cosmos, in all disorder a secret order. 
+Quote: We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. 
 
-By: Carl Jung
+By: Uta Hagen
