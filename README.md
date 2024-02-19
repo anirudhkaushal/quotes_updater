@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You can't stop the waves, but you can learn to surf. 
+Quote: To invent, you need a good imagination and a pile of junk. 
 
-By: Jon Kabat-Zinn
+By: Thomas Edison
