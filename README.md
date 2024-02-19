@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts. 
+Quote: You can't stop the waves, but you can learn to surf. 
 
-By: Charles Darwin
+By: Jon Kabat-Zinn
