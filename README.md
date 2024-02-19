@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Even youngish men can acquire wisdom as time goes by. 
+Quote: As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them. 
 
-By: John Bercow
+By: John F. Kennedy
