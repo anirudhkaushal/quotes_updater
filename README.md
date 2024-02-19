@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them. 
+Quote: In all chaos there is a cosmos, in all disorder a secret order. 
 
-By: John F. Kennedy
+By: Carl Jung
