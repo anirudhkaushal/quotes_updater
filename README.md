@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To invent, you need a good imagination and a pile of junk. 
+Quote: We all live with the objective of being happy; our lives are all different and yet the same. 
 
-By: Thomas Edison
+By: Anne Frank
