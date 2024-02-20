@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Patience is the companion of wisdom. 
+Quote: Wisdom has its root in goodness, not goodness its root in wisdom. 
 
-By: Augustine of Hippo
+By: Ralph Waldo Emerson
