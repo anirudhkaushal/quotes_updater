@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We all live with the objective of being happy; our lives are all different and yet the same. 
+Quote: I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind. 
 
-By: Anne Frank
+By: Albert Einstein
