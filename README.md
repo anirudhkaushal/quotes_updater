@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind. 
+Quote: All achievements, all earned riches, have their beginning in an idea. 
 
-By: Albert Einstein
+By: Napoleon Hill
