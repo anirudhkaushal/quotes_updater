@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All achievements, all earned riches, have their beginning in an idea. 
+Quote: We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution. 
 
-By: Napoleon Hill
+By: Abraham Lincoln
