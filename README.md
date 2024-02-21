@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When we seek to discover the best in others, we somehow bring out the best in ourselves. 
+Quote: You need chaos in your soul to give birth to a dancing star. 
 
-By: William Arthur Ward
+By: Friedrich Nietzsche
