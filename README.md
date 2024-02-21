@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Where all think alike, no one thinks very much. 
+Quote: When we seek to discover the best in others, we somehow bring out the best in ourselves. 
 
-By: Walter Lippmann
+By: William Arthur Ward
