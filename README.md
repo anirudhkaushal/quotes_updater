@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience. 
+Quote: Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less. 
 
-By: Robert Fulghum
+By: Marie Curie
