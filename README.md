@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom has its root in goodness, not goodness its root in wisdom. 
+Quote: Love isn't something you find. Love is something that finds you. 
 
-By: Ralph Waldo Emerson
+By: Loretta Young
