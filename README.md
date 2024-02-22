@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less. 
+Quote: Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are. 
 
-By: Marie Curie
+By: Bernice Reagon
