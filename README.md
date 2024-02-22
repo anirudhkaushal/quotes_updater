@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Everyone thinks of changing the world, but no one thinks of changing himself. 
+Quote: If one does not know to which port is sailing, no wind is favorable. 
 
-By: Leo Tolstoy
+By: Seneca the Younger
