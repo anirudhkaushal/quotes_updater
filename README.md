@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Gratitude is not only the greatest of virtues, but the parent of all the others. 
+Quote: However rare true love may be, it is less so than true friendship. 
 
-By: Cicero
+By: François de La Rochefoucauld
