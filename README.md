@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: However rare true love may be, it is less so than true friendship. 
+Quote: Everyone thinks of changing the world, but no one thinks of changing himself. 
 
-By: François de La Rochefoucauld
+By: Leo Tolstoy
