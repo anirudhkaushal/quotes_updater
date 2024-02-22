@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All children are artists. The problem is how to remain an artist once he grows up. 
+Quote: Gratitude is not only the greatest of virtues, but the parent of all the others. 
 
-By: Pablo Picasso
+By: Cicero
