@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are. 
+Quote: All children are artists. The problem is how to remain an artist once he grows up. 
 
-By: Bernice Reagon
+By: Pablo Picasso
