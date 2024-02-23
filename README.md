@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I can't imagine a person becoming a success who doesn't give this game of life everything he's got. 
+Quote: They can do all because they think they can. 
 
-By: Walter Cronkite
+By: Virgil
