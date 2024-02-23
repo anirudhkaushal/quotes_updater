@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If one does not know to which port is sailing, no wind is favorable. 
+Quote: I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted. 
 
-By: Seneca the Younger
+By: Og Mandino
