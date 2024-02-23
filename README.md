@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Almost everything comes from nothing. 
+Quote: I can't imagine a person becoming a success who doesn't give this game of life everything he's got. 
 
-By: Henri-Frédéric Amiel
+By: Walter Cronkite
