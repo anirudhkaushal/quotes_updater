@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: They can do all because they think they can. 
+Quote: The most complicated achievements of thought are possible without the assistance of consciousness. 
 
-By: Virgil
+By: Sigmund Freud
