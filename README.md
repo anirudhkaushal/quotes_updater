@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The most complicated achievements of thought are possible without the assistance of consciousness. 
+Quote: Love has no age, no limit; and no death. 
 
-By: Sigmund Freud
+By: John Galsworthy
