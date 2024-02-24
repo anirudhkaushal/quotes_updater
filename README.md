@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Many of life's failures are people who did not realize how close they were to success when they gave up. 
+Quote: Every great dream begins with a dreamer. Always remember, you have within you the strength, the patience, and the passion to reach for the stars to change the world. 
 
-By: Thomas Edison
+By: Harriet Tubman
