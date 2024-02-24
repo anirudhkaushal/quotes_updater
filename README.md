@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others. 
+Quote: Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas. 
 
-By: Tony Robbins
+By: The Buddha
