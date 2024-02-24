@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas. 
+Quote: To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do. 
 
-By: The Buddha
+By: Kahlil Gibran
