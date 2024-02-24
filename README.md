@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love has no age, no limit; and no death. 
+Quote: Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them. 
 
-By: John Galsworthy
+By: Steve Jobs
