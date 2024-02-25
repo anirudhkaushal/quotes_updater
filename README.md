@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Sports do not build character. They reveal it. 
+Quote: What you get by achieving your goals is not as important as what you become by achieving your goals. 
 
-By: Heywood Broun
+By: Zig Ziglar
