@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do. 
+Quote: The most important thing is transforming our minds, for a new way of thinking, a new outlook: we should strive to develop a new inner world. 
 
-By: Kahlil Gibran
+By: Dalai Lama
