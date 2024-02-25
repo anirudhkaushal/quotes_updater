@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In wartime, truth is so precious that she should always be attended by a bodyguard of lies. 
+Quote: Sports do not build character. They reveal it. 
 
-By: Winston Churchill
+By: Heywood Broun
