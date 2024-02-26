@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith. 
+Quote: Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude. 
 
-By: Gordon Hinckley
+By: Denis Waitley
