@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What you get by achieving your goals is not as important as what you become by achieving your goals. 
+Quote: Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith. 
 
-By: Zig Ziglar
+By: Gordon Hinckley
