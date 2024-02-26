@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: People usually compare the computer to the head of the human being. I would say that hardware is the bone of the head, the skull. The semiconductor is the brain within the head. The software is the wisdom. And data is the knowledge. 
+Quote: The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary. 
 
-By: Masayoshi Son
+By: Thomas Edison
