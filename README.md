@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary. 
+Quote: Pure, holy simplicity confounds all the wisdom of this world and the wisdom of the flesh. 
 
-By: Thomas Edison
+By: Francis of Assisi
