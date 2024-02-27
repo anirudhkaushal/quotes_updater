@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving. 
+Quote: Happiness can exist only in acceptance. 
 
-By: John Dewey
+By: George Orwell
