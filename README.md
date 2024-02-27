@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life is what happens while you are making other plans. 
+Quote: A true friend is the greatest of all blessings, and that which we take the least care of all to acquire. 
 
-By: John Lennon
+By: François de La Rochefoucauld
