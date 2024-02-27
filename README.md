@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A true friend is the greatest of all blessings, and that which we take the least care of all to acquire. 
+Quote: When you reach the end of your rope, tie a knot in it and hang on. 
 
-By: François de La Rochefoucauld
+By: Franklin D. Roosevelt
