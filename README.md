@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us! 
+Quote: Dreams come true. Without that possibility, nature would not incite us to have them. 
 
-By: Richard Bach
+By: John Updike
