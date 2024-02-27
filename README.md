@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Dreams come true. Without that possibility, nature would not incite us to have them. 
+Quote: Life is what happens while you are making other plans. 
 
-By: John Updike
+By: John Lennon
