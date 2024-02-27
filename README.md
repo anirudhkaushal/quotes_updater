@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Happiness can exist only in acceptance. 
+Quote: Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us! 
 
-By: George Orwell
+By: Richard Bach
