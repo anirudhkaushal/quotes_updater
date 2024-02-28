@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The more you know yourself, the more you forgive yourself. 
+Quote: Our kindness may be the most persuasive argument for that which we believe. 
 
-By: Confucius
+By: Gordon Hinckley
