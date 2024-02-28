@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you reach the end of your rope, tie a knot in it and hang on. 
+Quote: To find a man's true character, play golf with him. 
 
-By: Franklin D. Roosevelt
+By: P. G. Wodehouse
