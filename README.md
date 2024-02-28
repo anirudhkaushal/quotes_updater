@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Remember that failure is an event, not a person. 
+Quote: The more you know yourself, the more you forgive yourself. 
 
-By: Zig Ziglar
+By: Confucius
