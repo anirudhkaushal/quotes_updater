@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our kindness may be the most persuasive argument for that which we believe. 
+Quote: If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible. 
 
-By: Gordon Hinckley
+By: Epictetus
