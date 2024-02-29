@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life is a succession of moments. To live each one is to succeed. 
+Quote: The universe is transformation; our life is what our thoughts make it. 
 
-By: Corita Kent
+By: Marcus Aurelius
