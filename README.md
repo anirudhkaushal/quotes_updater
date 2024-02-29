@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We are Divine enough to ask and we are important enough to receive. 
+Quote: Humanity is acquiring all the right technology for all the wrong reasons. 
 
-By: Wayne Dyer
+By: Buckminster Fuller
