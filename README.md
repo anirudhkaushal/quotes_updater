@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: True friendship ought never to conceal what it thinks. 
+Quote: We are Divine enough to ask and we are important enough to receive. 
 
-By: Jerome
+By: Wayne Dyer
