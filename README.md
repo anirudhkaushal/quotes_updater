@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Humanity is acquiring all the right technology for all the wrong reasons. 
+Quote: Life is a succession of moments. To live each one is to succeed. 
 
-By: Buckminster Fuller
+By: Corita Kent
