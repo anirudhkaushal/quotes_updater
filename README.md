@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Never idealize others. They will never live up to your expectations. 
+Quote: True friendship ought never to conceal what it thinks. 
 
-By: Leo Buscaglia
+By: Jerome
