@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Experience is simply the name we give our mistakes. 
+Quote: Reality is merely an illusion, albeit a very persistent one. 
 
-By: Oscar Wilde
+By: Albert Einstein
