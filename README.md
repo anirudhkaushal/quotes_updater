@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Reality is merely an illusion, albeit a very persistent one. 
+Quote: I have done my best: that is about all the philosophy of living one needs. 
 
-By: Albert Einstein
+By: Lin Yutang
