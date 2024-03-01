@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I have done my best: that is about all the philosophy of living one needs. 
+Quote: Only two things are infinite, the universe and human stupidity, and I'm not sure about the former. 
 
-By: Lin Yutang
+By: Albert Einstein
