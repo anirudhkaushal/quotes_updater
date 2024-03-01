@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The universe is transformation; our life is what our thoughts make it. 
+Quote: Even youngish men can acquire wisdom as time goes by. 
 
-By: Marcus Aurelius
+By: John Bercow
