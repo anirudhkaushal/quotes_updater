@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: An organization, no matter how well designed, is only as good as the people who live and work in it. 
+Quote: Our passion is our strength. 
 
-By: Dee Hock
+By: Billie Armstrong
