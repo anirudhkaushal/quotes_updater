@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our passion is our strength. 
+Quote: I can't believe that God put us on this earth to be ordinary. 
 
-By: Billie Armstrong
+By: Lou Holtz
