@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us. 
+Quote: The longer we dwell on our misfortunes, the greater is their power to harm us. 
 
-By: Marcel Proust
+By: Voltaire
