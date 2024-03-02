@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The longer we dwell on our misfortunes, the greater is their power to harm us. 
+Quote: There are no failures. Just experiences and your reactions to them. 
 
-By: Voltaire
+By: Tom Krause
