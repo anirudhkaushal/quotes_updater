@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Only two things are infinite, the universe and human stupidity, and I'm not sure about the former. 
+Quote: We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us. 
 
-By: Albert Einstein
+By: Marcel Proust
