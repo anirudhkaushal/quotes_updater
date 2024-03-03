@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Fear grows in darkness; if you think there's a bogeyman around, turn on the light. 
+Quote: Better than a thousand hollow words, is one word that brings peace. 
 
-By: Dorothy Thompson
+By: The Buddha
