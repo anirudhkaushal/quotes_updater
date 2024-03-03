@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I can't believe that God put us on this earth to be ordinary. 
+Quote: Most people are about as happy as they make up their minds to be 
 
-By: Lou Holtz
+By: Abraham Lincoln
