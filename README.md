@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No man was ever wise by chance. 
+Quote: Edison failed 10,000 times before he made the electric light. Do not be discouraged if you fail a few times. 
 
-By: Seneca the Younger
+By: Napoleon Hill
