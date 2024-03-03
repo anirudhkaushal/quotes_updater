@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Edison failed 10,000 times before he made the electric light. Do not be discouraged if you fail a few times. 
+Quote: Fear grows in darkness; if you think there's a bogeyman around, turn on the light. 
 
-By: Napoleon Hill
+By: Dorothy Thompson
