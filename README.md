@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Most people are about as happy as they make up their minds to be 
+Quote: No man was ever wise by chance. 
 
-By: Abraham Lincoln
+By: Seneca the Younger
