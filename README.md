@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Discipline is the bridge between goals and accomplishment. 
+Quote: Those who cling to perceptions and views wander the world offending people. 
 
-By: Jim Rohn
+By: The Buddha
