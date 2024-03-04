@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What we achieve inwardly will change outer reality. 
+Quote: Discipline is the bridge between goals and accomplishment. 
 
-By: Plutarch
+By: Jim Rohn
