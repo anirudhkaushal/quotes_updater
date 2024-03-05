@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Sooner or later, those who win are those who think they can. 
+Quote: The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart. 
 
-By: Richard Bach
+By: Helen Keller
