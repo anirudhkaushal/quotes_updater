@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart. 
+Quote: More often than not, anger is actually an indication of weakness rather than of strength. 
 
-By: Helen Keller
+By: Dalai Lama
