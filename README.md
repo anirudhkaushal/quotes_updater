@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Those who cling to perceptions and views wander the world offending people. 
+Quote: Sooner or later, those who win are those who think they can. 
 
-By: The Buddha
+By: Richard Bach
