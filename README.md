@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Argue for your limitations, and sure enough they're yours. 
+Quote: It's not what you look at that matters, it's what you see. 
 
-By: Richard Bach
+By: Henry David Thoreau
