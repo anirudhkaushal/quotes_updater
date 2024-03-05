@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you can't feed a hundred people, then feed just one. 
+Quote: Argue for your limitations, and sure enough they're yours. 
 
-By: Mother Teresa
+By: Richard Bach
