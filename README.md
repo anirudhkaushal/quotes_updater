@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: More often than not, anger is actually an indication of weakness rather than of strength. 
+Quote: If you can't feed a hundred people, then feed just one. 
 
-By: Dalai Lama
+By: Mother Teresa
