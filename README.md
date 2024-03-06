@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It's not what you look at that matters, it's what you see. 
+Quote: Ignorant men raise questions that wise men answered a thousand years ago. 
 
-By: Henry David Thoreau
+By: Johann Wolfgang von Goethe
