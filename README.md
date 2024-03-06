@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A friendship founded on business is better than a business founded on friendship. 
+Quote: What you do today can improve all your tomorrows. 
 
-By: John Locke
+By: Ralph Marston
