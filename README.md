@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Ignorant men raise questions that wise men answered a thousand years ago. 
+Quote: Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle. 
 
-By: Johann Wolfgang von Goethe
+By: Amy Bloom
