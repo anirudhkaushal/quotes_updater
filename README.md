@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The eye sees only what the mind is prepared to comprehend. 
+Quote: Either I will find a way, or I will make one. 
 
-By: Henri Bergson
+By: Philip Sidney
