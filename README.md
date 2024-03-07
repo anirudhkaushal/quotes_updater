@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What you do today can improve all your tomorrows. 
+Quote: The eye sees only what the mind is prepared to comprehend. 
 
-By: Ralph Marston
+By: Henri Bergson
