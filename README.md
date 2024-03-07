@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Either I will find a way, or I will make one. 
+Quote: Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently. 
 
-By: Philip Sidney
+By: William Arthur Ward
