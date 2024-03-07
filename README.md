@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently. 
+Quote: Winners never quit and quitters never win. 
 
-By: William Arthur Ward
+By: Vince Lombardi
