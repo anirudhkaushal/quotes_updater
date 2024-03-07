@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Winners never quit and quitters never win. 
+Quote: Treat people as if they were what they ought to be, and you help them to become what they are capable of being. 
 
-By: Vince Lombardi
+By: Johann Wolfgang von Goethe
