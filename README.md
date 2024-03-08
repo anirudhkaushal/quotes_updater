@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Give me six hours to chop down a tree and I will spend the first four sharpening the axe. 
+Quote: Wisdom comes alone through suffering. 
 
-By: Abraham Lincoln
+By: Aeschylus
