@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The differences between friends cannot but reinforce their friendship. 
+Quote: Argue for your limitations, and sure enough they're yours. 
 
-By: Mao Zedong
+By: Richard Bach
