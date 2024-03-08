@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Freedom is the right to live as we wish. 
+Quote: First say to yourself what you would be; and then do what you have to do. 
 
 By: Epictetus
