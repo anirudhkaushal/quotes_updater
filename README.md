@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: First say to yourself what you would be; and then do what you have to do. 
+Quote: The differences between friends cannot but reinforce their friendship. 
 
-By: Epictetus
+By: Mao Zedong
