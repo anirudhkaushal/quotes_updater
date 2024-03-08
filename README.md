@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom comes alone through suffering. 
+Quote: Freedom is the right to live as we wish. 
 
-By: Aeschylus
+By: Epictetus
