@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Argue for your limitations, and sure enough they're yours. 
+Quote: In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed. 
 
-By: Richard Bach
+By: Kahlil Gibran
