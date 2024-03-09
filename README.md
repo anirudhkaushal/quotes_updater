@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed. 
+Quote: Successful people ask better questions, and as a result, they get better answers. 
 
-By: Kahlil Gibran
+By: Tony Robbins
