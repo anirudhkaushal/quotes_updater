@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I'll prepare and someday my chance will come. 
+Quote: Friends are the siblings God never gave us. 
 
-By: Abraham Lincoln
+By: Mencius
