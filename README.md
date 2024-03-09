@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform. 
+Quote: Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one. 
 
-By: Theodore H. White
+By: Diogenes
