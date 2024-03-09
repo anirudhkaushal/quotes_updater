@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friends are the siblings God never gave us. 
+Quote: To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform. 
 
-By: Mencius
+By: Theodore H. White
