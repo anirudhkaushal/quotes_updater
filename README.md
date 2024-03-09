@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Successful people ask better questions, and as a result, they get better answers. 
+Quote: I'll prepare and someday my chance will come. 
 
-By: Tony Robbins
+By: Abraham Lincoln
