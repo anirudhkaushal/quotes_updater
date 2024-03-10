@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The secret of getting ahead is getting started. 
+Quote: Gratitude is not only the greatest of virtues, but the parent of all the others. 
 
-By: Mark Twain
+By: Cicero
