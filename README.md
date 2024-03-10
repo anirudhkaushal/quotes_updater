@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one. 
+Quote: Strong people make as many mistakes as weak people. Difference is that strong people admit their mistakes, laugh at them, learn from them. That is how they become strong. 
 
-By: Diogenes
+By: Richard Needham
