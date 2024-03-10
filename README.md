@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Gratitude is not only the greatest of virtues, but the parent of all the others. 
+Quote: Friendship is certainly the finest balm for the pangs of disappointed love. 
 
-By: Cicero
+By: Jane Austen
