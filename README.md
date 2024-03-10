@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Radiate boundless love towards the entire world — above, below, and across — unhindered, without ill will, without enmity. 
+Quote: The secret of getting ahead is getting started. 
 
-By: The Buddha
+By: Mark Twain
