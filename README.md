@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Strong people make as many mistakes as weak people. Difference is that strong people admit their mistakes, laugh at them, learn from them. That is how they become strong. 
+Quote: The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live. 
 
-By: Richard Needham
+By: Mortimer J. Adler
