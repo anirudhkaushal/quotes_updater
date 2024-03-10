@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live. 
+Quote: Radiate boundless love towards the entire world — above, below, and across — unhindered, without ill will, without enmity. 
 
-By: Mortimer J. Adler
+By: The Buddha
