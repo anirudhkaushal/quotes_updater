@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship is certainly the finest balm for the pangs of disappointed love. 
+Quote: Most powerful is he who has himself in his own power. 
 
-By: Jane Austen
+By: Seneca the Younger
