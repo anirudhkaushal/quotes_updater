@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Most powerful is he who has himself in his own power. 
+Quote: We shall never know all the good that a simple smile can do. 
 
-By: Seneca the Younger
+By: Mother Teresa
