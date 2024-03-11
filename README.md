@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education. 
+Quote: Adversity causes some men to break, others to break records. 
 
-By: Thomas Carlyle
+By: William Arthur Ward
