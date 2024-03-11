@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Adversity causes some men to break, others to break records. 
+Quote: Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be. 
 
-By: William Arthur Ward
+By: Thomas à Kempis
