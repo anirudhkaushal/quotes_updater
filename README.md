@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be. 
+Quote: Life without love is like a tree without blossoms or fruit. 
 
-By: Thomas à Kempis
+By: Kahlil Gibran
