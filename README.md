@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It has been my experience that folks who have no vices have very few virtues. 
+Quote: A poem begins in delight and ends in wisdom. 
 
-By: Abraham Lincoln
+By: Robert Frost
