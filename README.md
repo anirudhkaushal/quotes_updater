@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Pitching is the art of instilling fear. 
+Quote: As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life. 
 
-By: Sandy Koufax
+By: Joseph Prince
