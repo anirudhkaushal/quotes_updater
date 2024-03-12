@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life without love is like a tree without blossoms or fruit. 
+Quote: Pitching is the art of instilling fear. 
 
-By: Kahlil Gibran
+By: Sandy Koufax
