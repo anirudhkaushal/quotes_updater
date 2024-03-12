@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life. 
+Quote: It has been my experience that folks who have no vices have very few virtues. 
 
-By: Joseph Prince
+By: Abraham Lincoln
