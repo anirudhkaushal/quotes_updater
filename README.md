@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A poem begins in delight and ends in wisdom. 
+Quote: He that is giddy thinks the world turns round. 
 
-By: Robert Frost
+By: William Shakespeare
