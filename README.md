@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If we have a positive mental attitude, then even when surrounded by hostility, we shall not lack inner peace. 
+Quote: Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them. 
 
-By: Dalai Lama
+By: Steve Jobs
