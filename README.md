@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Difficulties increase the nearer we get to the goal. 
+Quote: The human spirit must prevail over technology. 
 
-By: Johann Wolfgang von Goethe
+By: Albert Einstein
