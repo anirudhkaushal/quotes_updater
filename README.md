@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them. 
+Quote: The exercise of an extraordinary gift is the supremist pleasure in life. 
 
-By: Steve Jobs
+By: Mark Twain
