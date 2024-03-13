@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The human spirit must prevail over technology. 
+Quote: The entrepreneur always searches for change, responds to it, and exploits it as an opportunity. 
 
-By: Albert Einstein
+By: Peter Drucker
