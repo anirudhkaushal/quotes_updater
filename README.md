@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The exercise of an extraordinary gift is the supremist pleasure in life. 
+Quote: Difficulties increase the nearer we get to the goal. 
 
-By: Mark Twain
+By: Johann Wolfgang von Goethe
