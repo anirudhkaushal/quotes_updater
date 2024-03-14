@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The entrepreneur always searches for change, responds to it, and exploits it as an opportunity. 
+Quote: The greatest gift of life is friendship, and I have received it. 
 
-By: Peter Drucker
+By: Hubert Humphrey
