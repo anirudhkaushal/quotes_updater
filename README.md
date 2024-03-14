@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The cause is hidden. The effect is visible to all. 
+Quote: If I were two-faced, would I be wearing this one? 
 
-By: Ovid
+By: Abraham Lincoln
