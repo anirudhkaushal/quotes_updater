@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The greatest gift of life is friendship, and I have received it. 
+Quote: The cause is hidden. The effect is visible to all. 
 
-By: Hubert Humphrey
+By: Ovid
