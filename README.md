@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If I were two-faced, would I be wearing this one? 
+Quote: The noblest worship is to make yourself as good and as just as you can. 
 
-By: Abraham Lincoln
+By: Isocrates
