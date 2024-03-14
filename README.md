@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The noblest worship is to make yourself as good and as just as you can. 
+Quote: Even youngish men can acquire wisdom as time goes by. 
 
-By: Isocrates
+By: John Bercow
