@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Never find fault with the absent. 
+Quote: Technological progress has merely provided us with more efficient means for going backwards. 
 
-By: Alexander Pope
+By: Aldous Huxley
