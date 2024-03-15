@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There surely is in human nature an inherent propensity to extract all the good out of all the evil. 
+Quote: An optimist is a person who sees a green light everywhere, while the pessimist sees only the red spotlight... The truly wise person is color-blind. 
 
-By: Benjamin Haydon
+By: Albert Schweitzer
