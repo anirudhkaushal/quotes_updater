@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Even youngish men can acquire wisdom as time goes by. 
+Quote: Great ideas often receive violent opposition from mediocre minds. 
 
-By: John Bercow
+By: Albert Einstein
