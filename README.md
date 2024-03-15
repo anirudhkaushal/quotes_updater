@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Technological progress has merely provided us with more efficient means for going backwards. 
+Quote: In skating over thin ice our safety is in our speed. 
 
-By: Aldous Huxley
+By: Ralph Waldo Emerson
