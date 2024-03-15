@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Great ideas often receive violent opposition from mediocre minds. 
+Quote: There surely is in human nature an inherent propensity to extract all the good out of all the evil. 
 
-By: Albert Einstein
+By: Benjamin Haydon
