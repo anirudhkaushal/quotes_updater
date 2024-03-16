@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A little knowledge that acts is worth infinitely more than much knowledge that is idle. 
+Quote: Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. 
 
-By: Kahlil Gibran
+By: Marcus Aurelius
