@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. 
+Quote: If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself. 
 
-By: Marcus Aurelius
+By: Rollo May
