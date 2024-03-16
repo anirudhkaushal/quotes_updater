@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you. 
+Quote: Do not wait; the time will never be 'just right.' Start where you stand, and work with whatever tools you may have at your command, and better tools will be found as you go along. 
 
-By: Paramahansa Yogananda
+By: George Herbert
