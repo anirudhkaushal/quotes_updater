@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In skating over thin ice our safety is in our speed. 
+Quote: Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts. 
 
-By: Ralph Waldo Emerson
+By: Alan Cohen
