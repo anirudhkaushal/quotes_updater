@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Silence is the true friend that never betrays. 
+Quote: Make the best use of what is in your power and take the rest as it happens. 
 
-By: Confucius
+By: Epictetus
