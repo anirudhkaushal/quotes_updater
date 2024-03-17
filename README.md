@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude. 
+Quote: Fine words and an insinuating appearance are seldom associated with true virtue 
 
-By: Colin Powell
+By: Confucius
