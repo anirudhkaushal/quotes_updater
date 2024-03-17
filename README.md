@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One loyal friend is worth ten thousand relatives. 
+Quote: Silence is the true friend that never betrays. 
 
-By: Euripides
+By: Confucius
