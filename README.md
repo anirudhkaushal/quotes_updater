@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself. 
+Quote: One loyal friend is worth ten thousand relatives. 
 
-By: Rollo May
+By: Euripides
