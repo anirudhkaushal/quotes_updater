@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Make the best use of what is in your power and take the rest as it happens. 
+Quote: Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions. 
 
-By: Epictetus
+By: John F. Kennedy
