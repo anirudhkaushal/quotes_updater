@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Knowing is not enough; we must apply. Willing is not enough; we must do. 
+Quote: Learning never exhausts the mind. 
 
-By: Johann Wolfgang von Goethe
+By: Leonardo da Vinci
