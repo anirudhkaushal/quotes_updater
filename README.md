@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Fine words and an insinuating appearance are seldom associated with true virtue 
+Quote: Only I can change my life. No one can do it for me. 
 
-By: Confucius
+By: Carol Burnett
