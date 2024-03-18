@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Learning never exhausts the mind. 
+Quote: So long as a person is capable of self-renewal they are a living being. 
 
-By: Leonardo da Vinci
+By: Henri-Frédéric Amiel
