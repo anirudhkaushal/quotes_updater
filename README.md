@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Only I can change my life. No one can do it for me. 
+Quote: Knowing is not enough; we must apply. Willing is not enough; we must do. 
 
-By: Carol Burnett
+By: Johann Wolfgang von Goethe
