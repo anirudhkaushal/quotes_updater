@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom is always an overmatch for strength. 
+Quote: Miracles come in moments. Be ready and willing. 
 
-By: Phil Jackson
+By: Wayne Dyer
