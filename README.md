@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All experiences are preceded by mind, having mind as their master, created by mind. 
+Quote: True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment. 
 
-By: The Buddha
+By: William Penn
