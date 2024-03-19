@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Miracles come in moments. Be ready and willing. 
+Quote: All experiences are preceded by mind, having mind as their master, created by mind. 
 
-By: Wayne Dyer
+By: The Buddha
