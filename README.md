@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love is the only force capable of transforming an enemy into a friend. 
+Quote: Beware lest you lose the substance by grasping at the shadow. 
 
-By: Martin Luther King Jr.
+By: Aesop
