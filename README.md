@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Beware lest you lose the substance by grasping at the shadow. 
+Quote: Wisdom is always an overmatch for strength. 
 
-By: Aesop
+By: Phil Jackson
