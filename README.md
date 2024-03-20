@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be. 
+Quote: Either I will find a way, or I will make one. 
 
-By: Thomas Jefferson
+By: Philip Sidney
