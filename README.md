@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We are masters of the unsaid words, but slaves of those we let slip out. 
+Quote: We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel. 
 
-By: Winston Churchill
+By: Marcia Fudge
