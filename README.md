@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. 
+Quote: I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be. 
 
-By: Winston Churchill
+By: Thomas Jefferson
