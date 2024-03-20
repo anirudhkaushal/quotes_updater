@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The only time to buy these is on a day with no 'y' in it. 
+Quote: Keep your face always toward the sunshine - and shadows will fall behind you. 
 
-By: Warren Buffett
+By: Walt Whitman
