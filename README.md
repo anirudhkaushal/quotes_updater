@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel. 
+Quote: All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. 
 
-By: Marcia Fudge
+By: Winston Churchill
