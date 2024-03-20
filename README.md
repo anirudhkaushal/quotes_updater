@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Either I will find a way, or I will make one. 
+Quote: The only time to buy these is on a day with no 'y' in it. 
 
-By: Philip Sidney
+By: Warren Buffett
