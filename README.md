@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Remember that sometimes not getting what you want is a wonderful stroke of luck. 
+Quote: Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself. 
 
-By: Dalai Lama
+By: Kahlil Gibran
