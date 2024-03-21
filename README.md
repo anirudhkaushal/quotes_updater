@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Don't smother each other. No one can grow in the shade. 
+Quote: Remember that sometimes not getting what you want is a wonderful stroke of luck. 
 
-By: Leo Buscaglia
+By: Dalai Lama
