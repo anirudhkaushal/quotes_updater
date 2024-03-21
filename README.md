@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Keep your face always toward the sunshine - and shadows will fall behind you. 
+Quote: Before we acquire great power, we must acquire wisdom to use it well. 
 
-By: Walt Whitman
+By: Ralph Waldo Emerson
