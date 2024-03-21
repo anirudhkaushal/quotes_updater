@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto. 
+Quote: The older I get the more wisdom I find in the ancient rule of taking first things first. A process which often reduces the most complex human problem to a manageable proportion. 
 
-By: W. Clement Stone
+By: Dwight D. Eisenhower
