@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Before we acquire great power, we must acquire wisdom to use it well. 
+Quote: Don't smother each other. No one can grow in the shade. 
 
-By: Ralph Waldo Emerson
+By: Leo Buscaglia
