@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself. 
+Quote: No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto. 
 
-By: Kahlil Gibran
+By: W. Clement Stone
