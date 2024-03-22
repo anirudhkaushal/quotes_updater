@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There surely is in human nature an inherent propensity to extract all the good out of all the evil. 
+Quote: He that is giddy thinks the world turns round. 
 
-By: Benjamin Haydon
+By: William Shakespeare
