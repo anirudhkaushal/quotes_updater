@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If with a pure mind a person speaks or acts, happiness follows them like a never-departing shadow. 
+Quote: Do you know what my favorite part of the game is? The opportunity to play. 
 
-By: The Buddha
+By: Mike Singletary (basketball)
