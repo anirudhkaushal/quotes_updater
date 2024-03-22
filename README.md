@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Do you know what my favorite part of the game is? The opportunity to play. 
+Quote: To want to be what one can be is purpose in life. 
 
-By: Mike Singletary (basketball)
+By: Cynthia Ozick
