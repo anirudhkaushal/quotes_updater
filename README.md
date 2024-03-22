@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He that is giddy thinks the world turns round. 
+Quote: If with a pure mind a person speaks or acts, happiness follows them like a never-departing shadow. 
 
-By: William Shakespeare
+By: The Buddha
