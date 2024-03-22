@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To want to be what one can be is purpose in life. 
+Quote: Give, even if you only have a little. 
 
-By: Cynthia Ozick
+By: The Buddha
