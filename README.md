@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I can't believe that God put us on this earth to be ordinary. 
+Quote: Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. 
 
-By: Lou Holtz
+By: Charles Dickens
