@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Give, even if you only have a little. 
+Quote: Nothing happens unless first we dream. 
 
-By: The Buddha
+By: Carl Sandburg
