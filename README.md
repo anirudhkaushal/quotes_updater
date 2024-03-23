@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Reflect on your present blessings, of which every man has many; not on your past misfortunes, of which all men have some. 
+Quote: Blessed is the man who expects nothing, for he shall never be disappointed. 
 
-By: Charles Dickens
+By: Alexander Pope
