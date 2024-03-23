@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time. 
+Quote: I can't believe that God put us on this earth to be ordinary. 
 
-By: Jim Bouton
+By: Lou Holtz
