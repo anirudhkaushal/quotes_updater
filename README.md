@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: My friends are my estate. 
+Quote: This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it. 
 
-By: Emily Dickinson
+By: Thomas Carlyle
