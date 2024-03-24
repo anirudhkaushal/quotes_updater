@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There are people who have money and people who are rich. 
+Quote: Nothing will work unless you do. 
 
-By: Coco Chanel
+By: Maya Angelou
