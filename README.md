@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is no retirement for an artist, it's your way of living so there is no end to it. 
+Quote: There are people who have money and people who are rich. 
 
-By: Henry Moore
+By: Coco Chanel
