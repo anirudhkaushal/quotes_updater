@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Nothing will work unless you do. 
+Quote: Feeling and longing are the motive forces behind all human endeavor and human creations. 
 
-By: Maya Angelou
+By: Albert Einstein
