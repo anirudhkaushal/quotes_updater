@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it. 
+Quote: You can't put a limit on anything. The more you dream, the farther you get. 
 
-By: Thomas Carlyle
+By: Michael Phelps
