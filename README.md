@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Obstacles are those frightful things you see when you take your eyes off your goal. 
+Quote: Fear grows in darkness; if you think there's a bogeyman around, turn on the light. 
 
-By: Henry Ford
+By: Dorothy Thompson
