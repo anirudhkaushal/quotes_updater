@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A good head and a good heart are always a formidable combination. 
+Quote: Can miles truly separate you from friends... If you want to be with someone you love, aren't you already there? 
 
-By: Nelson Mandela
+By: Richard Bach
