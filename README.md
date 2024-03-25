@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Feeling and longing are the motive forces behind all human endeavor and human creations. 
+Quote: Argue for your limitations, and sure enough they're yours. 
 
-By: Albert Einstein
+By: Richard Bach
