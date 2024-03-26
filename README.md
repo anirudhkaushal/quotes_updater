@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you judge another, you do not define them, you define yourself. 
+Quote: When you reach the end of your rope, tie a knot in it and hang on. 
 
-By: Wayne Dyer
+By: Franklin D. Roosevelt
