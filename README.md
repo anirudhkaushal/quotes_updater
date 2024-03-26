@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Not engaging in ignorance is wisdom. 
+Quote: When you judge another, you do not define them, you define yourself. 
 
-By: Bodhidharma
+By: Wayne Dyer
