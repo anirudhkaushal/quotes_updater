@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We are all something, but none of us are everything. 
+Quote: You just can't beat the person who never gives up. 
 
-By: Blaise Pascal
+By: Babe Ruth
