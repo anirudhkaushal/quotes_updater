@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you have one true friend, you have more than your share. 
+Quote: A garden is always a series of losses set against a few triumphs, like life itself. 
 
-By: Thomas Fuller
+By: May Sarton
