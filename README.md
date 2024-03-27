@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No party has a monopoly on wisdom. No democracy works without compromise. 
+Quote: We are all something, but none of us are everything. 
 
-By: Barack Obama
+By: Blaise Pascal
