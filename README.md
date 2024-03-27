@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A garden is always a series of losses set against a few triumphs, like life itself. 
+Quote: Three things cannot be long hidden: the sun, the moon, and the truth. 
 
-By: May Sarton
+By: The Buddha
