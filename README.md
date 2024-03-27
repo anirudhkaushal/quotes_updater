@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you reach the end of your rope, tie a knot in it and hang on. 
+Quote: No party has a monopoly on wisdom. No democracy works without compromise. 
 
-By: Franklin D. Roosevelt
+By: Barack Obama
