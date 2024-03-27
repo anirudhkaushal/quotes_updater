@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You just can't beat the person who never gives up. 
+Quote: If you have one true friend, you have more than your share. 
 
-By: Babe Ruth
+By: Thomas Fuller
