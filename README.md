@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One man practicing sportsmanship is far better than a hundred teaching it. 
+Quote: Happiness can exist only in acceptance. 
 
-By: Knute Rockne
+By: George Orwell
