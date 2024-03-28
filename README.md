@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What is past is left behind. The future is yet unreached. Whatever quality is present, clearly see it right there. 
+Quote: Things are as they are. Looking out into it the universe at night, we make no comparisons between right and wrong stars, nor between well and badly arranged constellations. 
 
-By: The Buddha
+By: Alan Watts
