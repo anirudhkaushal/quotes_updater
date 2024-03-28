@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Three things cannot be long hidden: the sun, the moon, and the truth. 
+Quote: One man practicing sportsmanship is far better than a hundred teaching it. 
 
-By: The Buddha
+By: Knute Rockne
