@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What you do today can improve all your tomorrows. 
+Quote: There is no friendship, no love, like that of the parent for the child. 
 
-By: Ralph Marston
+By: Henry Ward Beecher
