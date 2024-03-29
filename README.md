@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The essence of true friendship is to make allowance for another's little lapses. 
+Quote: The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. 
 
-By: Ovid
+By: Walter Benjamin
