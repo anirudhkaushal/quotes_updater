@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out. 
+Quote: Our lives are a sum total of the choices we have made. 
 
-By: Walter Benjamin
+By: Wayne Dyer
