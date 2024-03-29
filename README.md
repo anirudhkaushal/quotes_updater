@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love is flower like; Friendship is like a sheltering tree. 
+Quote: Love is composed of a single soul inhabiting two bodies. 
 
-By: Samuel Taylor Coleridge
+By: Aristotle
