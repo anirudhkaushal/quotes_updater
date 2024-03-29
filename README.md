@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love is composed of a single soul inhabiting two bodies. 
+Quote: TV and the Internet are good because they keep stupid people from spending too much time out in public. 
 
-By: Aristotle
+By: Douglas Coupland
