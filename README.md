@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: TV and the Internet are good because they keep stupid people from spending too much time out in public. 
+Quote: The essence of true friendship is to make allowance for another's little lapses. 
 
-By: Douglas Coupland
+By: Ovid
