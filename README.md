@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A single lamp may light hundreds of thousands of lamps without itself being diminished. 
+Quote: Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue. 
 
-By: The Buddha
+By: Edith Wharton
