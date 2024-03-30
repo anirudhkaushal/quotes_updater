@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue. 
+Quote: Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one. 
 
-By: Edith Wharton
+By: Oscar Wilde
