@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one. 
+Quote: If we open a quarrel between past and present, we shall find that we have lost the future. 
 
-By: Oscar Wilde
+By: Winston Churchill
