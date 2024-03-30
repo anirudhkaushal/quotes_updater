@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our lives are a sum total of the choices we have made. 
+Quote: It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it. 
 
-By: Wayne Dyer
+By: John Steinbeck
