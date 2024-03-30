@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It isn't where you come from, it's where you're going that counts. 
+Quote: A single lamp may light hundreds of thousands of lamps without itself being diminished. 
 
-By: Ella Fitzgerald
+By: The Buddha
