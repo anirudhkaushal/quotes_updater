@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it. 
+Quote: It isn't where you come from, it's where you're going that counts. 
 
-By: John Steinbeck
+By: Ella Fitzgerald
