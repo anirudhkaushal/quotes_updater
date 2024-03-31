@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard. 
+Quote: Success consists of going from failure to failure without loss of enthusiasm. 
 
-By: Henry David Thoreau
+By: Winston Churchill
