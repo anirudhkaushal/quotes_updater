@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A poem begins in delight and ends in wisdom. 
+Quote: Swim upstream. Go the other way. Ignore the conventional wisdom. 
 
-By: Robert Frost
+By: Sam Walton
