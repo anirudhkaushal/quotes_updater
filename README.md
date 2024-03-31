@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Success consists of going from failure to failure without loss of enthusiasm. 
+Quote: It's easy to make a buck. It's a lot tougher to make a difference. 
 
-By: Winston Churchill
+By: Tom Brokaw
