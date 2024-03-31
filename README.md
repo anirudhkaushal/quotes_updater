@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Let us always meet each other with smile, for the smile is the beginning of love. 
+Quote: The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard. 
 
-By: Mother Teresa
+By: Henry David Thoreau
