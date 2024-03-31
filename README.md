@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If we open a quarrel between past and present, we shall find that we have lost the future. 
+Quote: Let us always meet each other with smile, for the smile is the beginning of love. 
 
-By: Winston Churchill
+By: Mother Teresa
