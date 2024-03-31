@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It's easy to make a buck. It's a lot tougher to make a difference. 
+Quote: A poem begins in delight and ends in wisdom. 
 
-By: Tom Brokaw
+By: Robert Frost
