@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Doing what you love is the cornerstone of having abundance in your life. 
+Quote: There is no great genius without some touch of madness. 
 
-By: Wayne Dyer
+By: Seneca the Younger
