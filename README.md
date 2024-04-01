@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is no great genius without some touch of madness. 
+Quote: Life without love is like a tree without blossoms or fruit. 
 
-By: Seneca the Younger
+By: Kahlil Gibran
