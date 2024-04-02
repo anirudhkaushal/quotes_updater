@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I hear and I forget. I see and I remember. I do and I understand. 
+Quote: In seed time learn, in harvest teach, in winter enjoy. 
 
-By: Confucius
+By: William Blake
