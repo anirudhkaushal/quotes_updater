@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life without love is like a tree without blossoms or fruit. 
+Quote: I hear and I forget. I see and I remember. I do and I understand. 
 
-By: Kahlil Gibran
+By: Confucius
