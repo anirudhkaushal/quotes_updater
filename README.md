@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Your mind will answer most questions if you learn to relax and wait for the answer. 
+Quote: Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it. 
 
-By: William Burroughs
+By: Aristotle
