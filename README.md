@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it. 
+Quote: The fact is, with every friendship you make, and every bond of trust you establish, you are shaping the image of America projected to the rest of the world. That is so important. So when you study abroad, you're actually helping to make America stronger. 
 
-By: Aristotle
+By: Michelle Obama
