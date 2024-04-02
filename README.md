@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In seed time learn, in harvest teach, in winter enjoy. 
+Quote: Your mind will answer most questions if you learn to relax and wait for the answer. 
 
-By: William Blake
+By: William Burroughs
