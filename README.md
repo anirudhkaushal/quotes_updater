@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Beware of missing chances; otherwise it may be altogether too late someday. 
+Quote: Courage is going from failure to failure without losing enthusiasm. 
 
-By: Franz Liszt
+By: Winston Churchill
