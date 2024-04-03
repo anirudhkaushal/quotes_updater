@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Never reach out your hand unless you're willing to extend an arm. 
+Quote: All things must come to the soul from its roots, from where it is planted. 
 
-By: Pope Paul VI
+By: Teresa of Ávila
