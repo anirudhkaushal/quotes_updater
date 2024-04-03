@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All things must come to the soul from its roots, from where it is planted. 
+Quote: Beware of missing chances; otherwise it may be altogether too late someday. 
 
-By: Teresa of Ávila
+By: Franz Liszt
