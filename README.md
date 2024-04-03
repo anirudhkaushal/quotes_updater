@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Courage is going from failure to failure without losing enthusiasm. 
+Quote: I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. 
 
-By: Winston Churchill
+By: Leonardo da Vinci
