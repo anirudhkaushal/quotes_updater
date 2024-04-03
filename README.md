@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do. 
+Quote: He who lives in harmony with himself lives in harmony with the universe. 
 
-By: Leonardo da Vinci
+By: Marcus Aurelius
