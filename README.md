@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life is movement-we breathe, we eat, we walk, we move! 
+Quote: We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct. 
 
-By: John Pierrakos
+By: Elizabeth Kapu'uwailani Lindsey
