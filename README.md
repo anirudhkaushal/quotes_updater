@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He who lives in harmony with himself lives in harmony with the universe. 
+Quote: If you correct your mind, the rest of your life will fall into place. 
 
-By: Marcus Aurelius
+By: Laozi
