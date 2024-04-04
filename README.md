@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Allow the world to live as it chooses, and allow yourself to live as you choose. 
+Quote: Life is movement-we breathe, we eat, we walk, we move! 
 
-By: Richard Bach
+By: John Pierrakos
