@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you correct your mind, the rest of your life will fall into place. 
+Quote: Keep yourself to the sunshine and you cannot see the shadow. 
 
-By: Laozi
+By: Helen Keller
