@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Keep yourself to the sunshine and you cannot see the shadow. 
+Quote: Allow the world to live as it chooses, and allow yourself to live as you choose. 
 
-By: Helen Keller
+By: Richard Bach
