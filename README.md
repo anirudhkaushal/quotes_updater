@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct. 
+Quote: The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary. 
 
-By: Elizabeth Kapu'uwailani Lindsey
+By: Thomas Edison
