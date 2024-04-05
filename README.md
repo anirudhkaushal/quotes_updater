@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A man should look for what is, and not for what he thinks should be. 
+Quote: The deepest craving of human nature is the need to be appreciated. 
 
-By: Albert Einstein
+By: William James
