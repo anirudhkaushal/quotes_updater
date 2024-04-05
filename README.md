@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you owe the bank $100 that's your problem. If you owe the bank $100 million, that's the bank's problem. 
+Quote: Technology made large populations possible; large populations now make technology indispensable. 
 
-By: J. Paul Getty
+By: Joseph Wood Krutch
