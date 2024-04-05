@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary. 
+Quote: If you owe the bank $100 that's your problem. If you owe the bank $100 million, that's the bank's problem. 
 
-By: Thomas Edison
+By: J. Paul Getty
