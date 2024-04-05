@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The deepest craving of human nature is the need to be appreciated. 
+Quote: What sweetness is left in life, if you take away friendship? Robbing life of friendship is like robbing the world of the sun. A true friend is more to be esteemed than kinsfolk. 
 
-By: William James
+By: Cicero
