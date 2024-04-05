@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Technology made large populations possible; large populations now make technology indispensable. 
+Quote: A man should look for what is, and not for what he thinks should be. 
 
-By: Joseph Wood Krutch
+By: Albert Einstein
