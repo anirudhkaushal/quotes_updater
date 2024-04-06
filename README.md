@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Reality leaves a lot to the imagination. 
+Quote: Beauty is not in the face; beauty is a light in the heart. 
 
-By: John Lennon
+By: Kahlil Gibran
