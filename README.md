@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were. 
+Quote: Reality leaves a lot to the imagination. 
 
-By: David Rockefeller
+By: John Lennon
