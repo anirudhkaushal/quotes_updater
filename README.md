@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship needs no words - it is solitude delivered from the anguish of loneliness. 
+Quote: It all depends on how we look at things, and not how they are in themselves. 
 
-By: Dag Hammarskjöld
+By: Carl Jung
