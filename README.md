@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It all depends on how we look at things, and not how they are in themselves. 
+Quote: It has become appallingly obvious that our technology has exceeded our humanity. 
 
-By: Carl Jung
+By: Albert Einstein
