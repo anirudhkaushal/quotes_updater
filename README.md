@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Beauty is not in the face; beauty is a light in the heart. 
+Quote: If you fell down yesterday, stand up today. 
 
-By: Kahlil Gibran
+By: H. G. Wells
