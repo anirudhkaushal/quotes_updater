@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The real danger is not that computers will begin to think like men, but that men will begin to think like computers. 
+Quote: Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have. 
 
-By: Sydney J. Harris
+By: Ernie Banks
