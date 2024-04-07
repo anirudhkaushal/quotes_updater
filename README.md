@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Reality leaves a lot to the imagination. 
+Quote: We all live with the objective of being happy; our lives are all different and yet the same. 
 
-By: John Lennon
+By: Anne Frank
