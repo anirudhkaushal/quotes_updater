@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We all live with the objective of being happy; our lives are all different and yet the same. 
+Quote: None knows the weight of another's burden. 
 
-By: Anne Frank
+By: George Herbert
