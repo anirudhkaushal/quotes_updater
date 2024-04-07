@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: None knows the weight of another's burden. 
+Quote: The real danger is not that computers will begin to think like men, but that men will begin to think like computers. 
 
-By: George Herbert
+By: Sydney J. Harris
