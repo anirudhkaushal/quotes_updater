@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you fell down yesterday, stand up today. 
+Quote: Reality leaves a lot to the imagination. 
 
-By: H. G. Wells
+By: John Lennon
