@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Don't be afraid to go out on a limb. That's where the fruit is. 
+Quote: Believe you can and you're halfway there. 
 
-By: H. Jackson Brown Jr.
+By: Theodore Roosevelt
