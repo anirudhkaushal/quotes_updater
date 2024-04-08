@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He who knows others is wise. He who knows himself is enlightened. 
+Quote: Honesty is the first chapter in the book of wisdom. 
 
-By: Laozi
+By: Thomas Jefferson
