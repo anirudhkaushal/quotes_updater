@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Strength does not come from physical capacity. It comes from an indomitable will. 
+Quote: He who knows others is wise. He who knows himself is enlightened. 
 
-By: Mahatma Gandhi
+By: Laozi
