@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Knowledge rests not upon truth alone, but upon error also. 
+Quote: Strength does not come from physical capacity. It comes from an indomitable will. 
 
-By: Carl Jung
+By: Mahatma Gandhi
