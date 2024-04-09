@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Without hard work, nothing grows but weeds. 
+Quote: Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good. 
 
-By: Gordon Hinckley
+By: The Buddha
