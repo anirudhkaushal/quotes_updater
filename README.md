@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Believe you can and you're halfway there. 
+Quote: Without hard work, nothing grows but weeds. 
 
-By: Theodore Roosevelt
+By: Gordon Hinckley
