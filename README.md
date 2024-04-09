@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It's better to be a lion for a day than a sheep all your life. 
+Quote: True friendship ought never to conceal what it thinks. 
 
-By: Elizabeth Kenny
+By: Jerome
