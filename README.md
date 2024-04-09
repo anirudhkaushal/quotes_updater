@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life without love is like a tree without blossoms or fruit. 
+Quote: A garden is always a series of losses set against a few triumphs, like life itself. 
 
-By: Kahlil Gibran
+By: May Sarton
