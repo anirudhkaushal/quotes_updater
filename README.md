@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good. 
+Quote: It's better to be a lion for a day than a sheep all your life. 
 
-By: The Buddha
+By: Elizabeth Kenny
