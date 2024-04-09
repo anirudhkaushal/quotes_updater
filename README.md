@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: True friendship ought never to conceal what it thinks. 
+Quote: Life without love is like a tree without blossoms or fruit. 
 
-By: Jerome
+By: Kahlil Gibran
