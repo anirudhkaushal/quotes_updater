@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A person who never made a mistake never tried anything new. 
+Quote: We cannot do everything at once, but we can do something at once. 
 
-By: Albert Einstein
+By: Calvin Coolidge
