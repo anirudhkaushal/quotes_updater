@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The path to success is to take massive, determined action. 
+Quote: A person who never made a mistake never tried anything new. 
 
-By: Tony Robbins
+By: Albert Einstein
