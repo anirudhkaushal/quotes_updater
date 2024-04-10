@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A garden is always a series of losses set against a few triumphs, like life itself. 
+Quote: A tree is known by its fruit; a man by his deeds. A good deed is never lost; he who sows courtesy reaps friendship, and he who plants kindness gathers love. 
 
-By: May Sarton
+By: Basil of Caesarea
