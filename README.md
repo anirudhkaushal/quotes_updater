@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The journey of a thousand miles begins with one step. 
+Quote: Whoever is happy will make others happy, too. 
 
-By: Laozi
+By: Mark Twain
