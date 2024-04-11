@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Myths which are believed in tend to become true. 
+Quote: The journey of a thousand miles begins with one step. 
 
-By: George Orwell
+By: Laozi
