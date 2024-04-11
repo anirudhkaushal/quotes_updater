@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When something is important enough, you do it even if the odds are not in your favor. 
+Quote: Pick battles big enough to matter, small enough to win. 
 
-By: Elon Musk
+By: Jonathan Kozol
