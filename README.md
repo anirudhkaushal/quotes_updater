@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We cannot do everything at once, but we can do something at once. 
+Quote: Love is composed of a single soul inhabiting two bodies. 
 
-By: Calvin Coolidge
+By: Aristotle
