@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Whoever is happy will make others happy, too. 
+Quote: When something is important enough, you do it even if the odds are not in your favor. 
 
-By: Mark Twain
+By: Elon Musk
