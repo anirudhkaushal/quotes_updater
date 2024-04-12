@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To accomplish great things, we must not only act, but also dream; not only plan, but also believe. 
+Quote: The things that one most wants to do are the things that are probably most worth doing. 
 
-By: Anatole France
+By: Winifred Holtby
