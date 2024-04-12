@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Hope arouses, as nothing else can arouse, a passion for the possible. 
+Quote: To accomplish great things, we must not only act, but also dream; not only plan, but also believe. 
 
-By: William Sloane Coffin
+By: Anatole France
