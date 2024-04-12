@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The superior man is satisfied and composed; the mean man is always full of distress. 
+Quote: Hope arouses, as nothing else can arouse, a passion for the possible. 
 
-By: Confucius
+By: William Sloane Coffin
