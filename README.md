@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth. 
+Quote: Everyone has an invisible sign hanging from their neck saying, 'Make me feel important.' Never forget this message when working with people. 
 
-By: Peter Abelard
+By: Mary Kay Ash
