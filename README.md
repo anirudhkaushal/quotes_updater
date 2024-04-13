@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The things that one most wants to do are the things that are probably most worth doing. 
+Quote: I am always ready to learn although I do not always like being taught. 
 
-By: Winifred Holtby
+By: Winston Churchill
