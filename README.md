@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you meet someone better than yourself, turn your thoughts to becoming his equal. When you meet someone not as good as you are, look within and examine your own self. 
+Quote: 'All conditioned things are impermanent' — when one sees this with wisdom, one turns away from suffering. 
 
-By: Confucius
+By: The Buddha
