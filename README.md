@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody. 
+Quote: Great minds discuss ideas; average minds discuss events; small minds discuss people. 
 
-By: Henry Wadsworth Longfellow
+By: Eleanor Roosevelt
