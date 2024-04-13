@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I am always ready to learn although I do not always like being taught. 
+Quote: Nothing is at last sacred but the integrity of your own mind. 
 
-By: Winston Churchill
+By: Ralph Waldo Emerson
