@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Nothing is at last sacred but the integrity of your own mind. 
+Quote: When you meet someone better than yourself, turn your thoughts to becoming his equal. When you meet someone not as good as you are, look within and examine your own self. 
 
-By: Ralph Waldo Emerson
+By: Confucius
