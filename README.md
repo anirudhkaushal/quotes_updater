@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Be the change that you want to see in the world. 
+Quote: One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim. 
 
-By: Mahatma Gandhi
+By: Brooks Adams
