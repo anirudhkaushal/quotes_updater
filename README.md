@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Great minds discuss ideas; average minds discuss events; small minds discuss people. 
+Quote: Be the change that you want to see in the world. 
 
-By: Eleanor Roosevelt
+By: Mahatma Gandhi
