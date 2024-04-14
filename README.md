@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: True friendship ought never to conceal what it thinks. 
+Quote: To want to be what one can be is purpose in life. 
 
-By: Jerome
+By: Cynthia Ozick
