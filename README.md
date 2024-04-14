@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To want to be what one can be is purpose in life. 
+Quote: TV and the Internet are good because they keep stupid people from spending too much time out in public. 
 
-By: Cynthia Ozick
+By: Douglas Coupland
