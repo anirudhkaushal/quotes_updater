@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you want your life to be more rewarding, you have to change the way you think. 
+Quote: Strength does not come from physical capacity. It comes from an indomitable will. 
 
-By: Oprah Winfrey
+By: Mahatma Gandhi
