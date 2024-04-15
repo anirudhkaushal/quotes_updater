@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Strength does not come from physical capacity. It comes from an indomitable will. 
+Quote: Your sacred space is where you can find yourself again and again. 
 
-By: Mahatma Gandhi
+By: Joseph Campbell
