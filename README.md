@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Kindness is the language which the deaf can hear and the blind can see. 
+Quote: If you want your life to be more rewarding, you have to change the way you think. 
 
-By: Mark Twain
+By: Oprah Winfrey
