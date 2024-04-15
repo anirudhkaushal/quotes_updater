@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: TV and the Internet are good because they keep stupid people from spending too much time out in public. 
+Quote: You have enemies? Good. That means you've stood up for something, sometime in your life. 
 
-By: Douglas Coupland
+By: Winston Churchill
