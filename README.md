@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You have enemies? Good. That means you've stood up for something, sometime in your life. 
+Quote: Kindness is the language which the deaf can hear and the blind can see. 
 
-By: Winston Churchill
+By: Mark Twain
