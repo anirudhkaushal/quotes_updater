@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The one thing that you have that nobody else has is you. Your voice, your mind, your story, your vision. So write and draw and build and play and dance and live as only you can. 
+Quote: Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius. 
 
-By: Neil Gaiman
+By: Wolfgang Amadeus Mozart
