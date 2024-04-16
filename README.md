@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One fails forward toward success. 
+Quote: To accomplish great things, we must dream as well as act. 
 
-By: Charles F. Kettering
+By: Anatole France
