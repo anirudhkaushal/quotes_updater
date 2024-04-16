@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The less effort, the faster and more powerful you will be. 
+Quote: One fails forward toward success. 
 
-By: Bruce Lee
+By: Charles F. Kettering
