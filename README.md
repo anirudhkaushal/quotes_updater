@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our intention creates our reality. 
+Quote: The less effort, the faster and more powerful you will be. 
 
-By: Wayne Dyer
+By: Bruce Lee
