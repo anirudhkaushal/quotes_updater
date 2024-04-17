@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart. 
+Quote: You are never given a wish without also being given the power to make it come true. You may have to work for it, however. 
 
-By: Marcus Aurelius
+By: Richard Bach
