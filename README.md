@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. 
+Quote: The farther backward you can look, the farther forward you can see. 
 
-By: Marcus Aurelius
+By: Winston Churchill
