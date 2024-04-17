@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Kind words do not cost much. Yet they accomplish much. 
+Quote: It is a miracle that curiosity survives formal education. 
 
-By: Blaise Pascal
+By: Albert Einstein
