@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius. 
+Quote: Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. 
 
-By: Wolfgang Amadeus Mozart
+By: Marcus Aurelius
