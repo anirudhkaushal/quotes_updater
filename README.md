@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The farther backward you can look, the farther forward you can see. 
+Quote: Kind words do not cost much. Yet they accomplish much. 
 
-By: Winston Churchill
+By: Blaise Pascal
