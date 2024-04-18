@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Always do your best. What you plant now, you will harvest later. 
+Quote: A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both. 
 
-By: Og Mandino
+By: Fawn M. Brodie
