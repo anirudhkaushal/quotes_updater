@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is fatal to enter any war without the will to win it. 
+Quote: Always do your best. What you plant now, you will harvest later. 
 
-By: Douglas MacArthur
+By: Og Mandino
