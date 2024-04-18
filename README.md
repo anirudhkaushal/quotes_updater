@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both. 
+Quote: Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved. 
 
-By: Fawn M. Brodie
+By: Helen Keller
