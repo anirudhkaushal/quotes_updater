@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Much wisdom often goes with fewest words. 
+Quote: Life is divided into the horrible and the miserable. 
 
-By: Sophocles
+By: Woody Allen
