@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today. 
+Quote: I can't imagine a person becoming a success who doesn't give this game of life everything he's got. 
 
-By: Tryon Edwards
+By: Walter Cronkite
