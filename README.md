@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life is divided into the horrible and the miserable. 
+Quote: Opportunity is missed by most people because it is dressed in overalls and looks like work. 
 
-By: Woody Allen
+By: Thomas Edison
