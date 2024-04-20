@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Who sows virtue reaps honor. 
+Quote: Your big opportunity may be right where you are now. 
 
-By: Leonardo da Vinci
+By: Napoleon Hill
