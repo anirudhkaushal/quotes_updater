@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship increases in visiting friends, but in visiting them seldom. 
+Quote: Who sows virtue reaps honor. 
 
-By: Francis Bacon
+By: Leonardo da Vinci
