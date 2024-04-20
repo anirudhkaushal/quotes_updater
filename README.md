@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You cannot step twice into the same river, for other waters are continually flowing in. 
+Quote: Friendship increases in visiting friends, but in visiting them seldom. 
 
-By: Heraclitus
+By: Francis Bacon
