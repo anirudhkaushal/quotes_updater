@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You can't blame gravity for falling in love. 
+Quote: Wisdom begins at the end. 
 
-By: Albert Einstein
+By: Daniel Webster
