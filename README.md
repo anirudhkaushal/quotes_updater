@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Your big opportunity may be right where you are now. 
+Quote: You can't blame gravity for falling in love. 
 
-By: Napoleon Hill
+By: Albert Einstein
