@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A man should look for what is, and not for what he thinks should be. 
+Quote: People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost. 
 
-By: Albert Einstein
+By: Dalai Lama
