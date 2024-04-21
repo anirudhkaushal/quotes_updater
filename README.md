@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We cannot be more sensitive to pleasure without being more sensitive to pain. 
+Quote: Genius unrefined resembles a flash of lightning, but wisdom is like the sun. 
 
-By: Alan Watts
+By: Franz Grillparzer
