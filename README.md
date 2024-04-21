@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom begins at the end. 
+Quote: You do not become good by trying to be good, but by finding the goodness that is already within you. 
 
-By: Daniel Webster
+By: Eckhart Tolle
