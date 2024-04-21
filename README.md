@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You do not become good by trying to be good, but by finding the goodness that is already within you. 
+Quote: A man should look for what is, and not for what he thinks should be. 
 
-By: Eckhart Tolle
+By: Albert Einstein
