@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: They blame those who remain silent, they blame those who speak much, they blame those who speak in moderation. There is none in the world who is not blamed. 
+Quote: We cannot be more sensitive to pleasure without being more sensitive to pain. 
 
-By: The Buddha
+By: Alan Watts
