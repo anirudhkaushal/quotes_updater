@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost. 
+Quote: They blame those who remain silent, they blame those who speak much, they blame those who speak in moderation. There is none in the world who is not blamed. 
 
-By: Dalai Lama
+By: The Buddha
