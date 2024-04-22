@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing. 
+Quote: It's easier to resist at the beginning than at the end. 
 
-By: Mother Teresa
+By: Leonardo da Vinci
