@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It's easier to resist at the beginning than at the end. 
+Quote: Ethics change with technology. 
 
-By: Leonardo da Vinci
+By: Larry Niven
