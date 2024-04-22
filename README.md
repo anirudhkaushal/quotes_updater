@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Genius unrefined resembles a flash of lightning, but wisdom is like the sun. 
+Quote: This is why I loved technology: if you used it right, it could give you power and privacy. 
 
-By: Franz Grillparzer
+By: Cory Doctorow
