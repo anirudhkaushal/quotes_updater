@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: This is why I loved technology: if you used it right, it could give you power and privacy. 
+Quote: We all live with the objective of being happy; our lives are all different and yet the same. 
 
-By: Cory Doctorow
+By: Anne Frank
