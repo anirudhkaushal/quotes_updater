@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We all live with the objective of being happy; our lives are all different and yet the same. 
+Quote: Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing. 
 
-By: Anne Frank
+By: Mother Teresa
