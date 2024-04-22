@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Ethics change with technology. 
+Quote: You have to do your own growing no matter how tall your grandfather was. 
 
-By: Larry Niven
+By: Abraham Lincoln
