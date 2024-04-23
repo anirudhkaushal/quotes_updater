@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success. 
+Quote: Where all think alike, no one thinks very much. 
 
-By: Elbert Hubbard
+By: Walter Lippmann
