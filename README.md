@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You have to do your own growing no matter how tall your grandfather was. 
+Quote: Technology… the knack of so arranging the world that we don't have to experience it. 
 
-By: Abraham Lincoln
+By: Max Frisch
