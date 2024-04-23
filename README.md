@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Technology… the knack of so arranging the world that we don't have to experience it. 
+Quote: Whatever happens, take responsibility. 
 
-By: Max Frisch
+By: Tony Robbins
