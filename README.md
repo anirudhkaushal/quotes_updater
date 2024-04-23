@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I love you the more in that I believe you had liked me for my own sake and for nothing else. 
+Quote: A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success. 
 
-By: John Keats
+By: Elbert Hubbard
