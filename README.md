@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Where all think alike, no one thinks very much. 
+Quote: It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err. 
 
-By: Walter Lippmann
+By: Mahatma Gandhi
