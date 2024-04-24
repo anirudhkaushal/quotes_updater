@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Patience is the companion of wisdom. 
+Quote: If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself. 
 
-By: Augustine of Hippo
+By: Rollo May
