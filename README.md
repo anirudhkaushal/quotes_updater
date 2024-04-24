@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself. 
+Quote: I'm not afraid of storms, for I'm learning how to sail my ship. 
 
-By: Rollo May
+By: Louisa May Alcott
