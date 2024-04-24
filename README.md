@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If we look at the world with a love of life, the world will reveal its beauty to us. 
+Quote: There are no strangers here; Only friends you haven't yet met. 
 
-By: Daisaku Ikeda
+By: William Butler Yeats
