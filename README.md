@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There are no strangers here; Only friends you haven't yet met. 
+Quote: Good timber does not grow with ease; the stronger the wind, the stronger the trees. 
 
-By: William Butler Yeats
+By: J. Willard Marriott
