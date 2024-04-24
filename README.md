@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err. 
+Quote: If we look at the world with a love of life, the world will reveal its beauty to us. 
 
-By: Mahatma Gandhi
+By: Daisaku Ikeda
