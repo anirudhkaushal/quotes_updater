@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Minds are like parachutes. They only function when open. 
+Quote: He who talks more is sooner exhausted. 
 
-By: Thomas Dewar
+By: Laozi
