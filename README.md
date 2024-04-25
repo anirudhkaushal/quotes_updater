@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A good decision is based on knowledge and not on numbers. 
+Quote: Minds are like parachutes. They only function when open. 
 
-By: Plato
+By: Thomas Dewar
