@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Beware of false knowledge; it is more dangerous than ignorance. 
+Quote: A good decision is based on knowledge and not on numbers. 
 
-By: Bernard Shaw
+By: Plato
