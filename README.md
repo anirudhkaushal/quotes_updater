@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Imagination rules the world. 
+Quote: There is nothing happens to any person but what was in his power to go through with. 
 
-By: Napoleon
+By: Marcus Aurelius
