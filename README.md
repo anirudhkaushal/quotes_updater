@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I'm not afraid of storms, for I'm learning how to sail my ship. 
+Quote: Beware of false knowledge; it is more dangerous than ignorance. 
 
-By: Louisa May Alcott
+By: Bernard Shaw
