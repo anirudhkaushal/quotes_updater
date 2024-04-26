@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is nothing happens to any person but what was in his power to go through with. 
+Quote: The journey of a thousand miles begins with one step. 
 
-By: Marcus Aurelius
+By: Laozi
