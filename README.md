@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He who wishes to secure the good of others, has already secured his own. 
+Quote: You can observe a lot just by watching. 
 
-By: Confucius
+By: Yogi Berra
