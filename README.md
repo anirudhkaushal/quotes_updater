@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Make it your habit not to be critical about small things. 
+Quote: Effort only fully releases its reward after a person refuses to quit. 
 
-By: Edward Everett Hale
+By: Napoleon Hill
