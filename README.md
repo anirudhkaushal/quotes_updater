@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You can observe a lot just by watching. 
+Quote: If you have one true friend, you have more than your share. 
 
-By: Yogi Berra
+By: Thomas Fuller
