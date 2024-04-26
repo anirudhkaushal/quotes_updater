@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you have one true friend, you have more than your share. 
+Quote: Make it your habit not to be critical about small things. 
 
-By: Thomas Fuller
+By: Edward Everett Hale
