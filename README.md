@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The journey of a thousand miles begins with one step. 
+Quote: He who wishes to secure the good of others, has already secured his own. 
 
-By: Laozi
+By: Confucius
