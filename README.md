@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak. 
+Quote: Impossibilities are merely things which we have not yet learned. 
 
-By: Thomas Carlyle
+By: Charles W. Chesnutt
