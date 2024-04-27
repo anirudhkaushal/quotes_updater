@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Impossibilities are merely things which we have not yet learned. 
+Quote: I always wanted to be somebody, but I should have been more specific. 
 
-By: Charles W. Chesnutt
+By: Lily Tomlin
