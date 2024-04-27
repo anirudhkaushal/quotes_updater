@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When times are bad is when the real entrepreneurs emerge. 
+Quote: The only Zen you find on the tops of mountains is the Zen you bring up there. 
 
-By: Robert Kiyosaki
+By: Robert M. Pirsig
