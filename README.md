@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Effort only fully releases its reward after a person refuses to quit. 
+Quote: Do not waste yourself in rejection, nor bark against the bad, but chant the beauty of the good. 
 
-By: Napoleon Hill
+By: Ralph Waldo Emerson
