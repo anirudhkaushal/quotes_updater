@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Do not waste yourself in rejection, nor bark against the bad, but chant the beauty of the good. 
+Quote: When times are bad is when the real entrepreneurs emerge. 
 
-By: Ralph Waldo Emerson
+By: Robert Kiyosaki
