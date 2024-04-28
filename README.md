@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: TV and the Internet are good because they keep stupid people from spending too much time out in public. 
+Quote: The most formidable weapon against errors of every kind is reason. 
 
-By: Douglas Coupland
+By: Thomas Paine
