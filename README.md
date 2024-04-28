@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To have much learning and skill, to be well-trained in discipline, and good in speech — this is the highest blessing. 
+Quote: TV and the Internet are good because they keep stupid people from spending too much time out in public. 
 
-By: The Buddha
+By: Douglas Coupland
