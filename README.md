@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I always wanted to be somebody, but I should have been more specific. 
+Quote: Opportunity is missed by most because it is dressed in overalls and looks like work. 
 
-By: Lily Tomlin
+By: Thomas Edison
