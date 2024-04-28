@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The most formidable weapon against errors of every kind is reason. 
+Quote: A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation. 
 
-By: Thomas Paine
+By: Molière
