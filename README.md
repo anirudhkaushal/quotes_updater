@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation. 
+Quote: Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success. 
 
-By: Molière
+By: Swami Vivekananda
