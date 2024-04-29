@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Imagination is not a talent of some men but is the health of every man. 
+Quote: Those who dream by day are cognizant of many things which escape those who dream only by night. 
 
-By: Ralph Waldo Emerson
+By: Edgar Allan Poe
