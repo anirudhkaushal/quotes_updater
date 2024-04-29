@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Those who dream by day are cognizant of many things which escape those who dream only by night. 
+Quote: By living deeply in the present moment we can understand the past better and we can prepare for a better future. 
 
-By: Edgar Allan Poe
+By: Thích Nhất Hạnh
