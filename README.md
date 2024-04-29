@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success. 
+Quote: A successful person is one who can lay a firm foundation with the bricks that others throw at him or her. 
 
-By: Swami Vivekananda
+By: David Brinkley
