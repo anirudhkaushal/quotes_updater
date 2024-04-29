@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I'm a great believer in luck and I find the harder I work, the more I have of it. 
+Quote: Imagination is not a talent of some men but is the health of every man. 
 
-By: Thomas Jefferson
+By: Ralph Waldo Emerson
