@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more 
+Quote: Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship. 
 
-By: Tony Robbins
+By: Epicurus
