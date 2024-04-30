@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship. 
+Quote: I believe that every person is born with talent. 
 
-By: Epicurus
+By: Maya Angelou
