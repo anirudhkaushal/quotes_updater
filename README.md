@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Time you enjoyed wasting was not wasted. 
+Quote: The great myth of our times is that technology is communication. 
 
-By: John Lennon
+By: Libby Larsen
