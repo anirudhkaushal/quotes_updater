@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: By living deeply in the present moment we can understand the past better and we can prepare for a better future. 
+Quote: By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears. 
 
-By: Thích Nhất Hạnh
+By: Thomas Carlyle
