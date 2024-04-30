@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears. 
+Quote: Time you enjoyed wasting was not wasted. 
 
-By: Thomas Carlyle
+By: John Lennon
