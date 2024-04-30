@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The great myth of our times is that technology is communication. 
+Quote: Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more 
 
-By: Libby Larsen
+By: Tony Robbins
