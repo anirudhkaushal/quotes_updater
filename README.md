@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I believe that every person is born with talent. 
+Quote: The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart. 
 
-By: Maya Angelou
+By: Helen Keller
