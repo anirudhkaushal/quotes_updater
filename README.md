@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart. 
+Quote: Be slow of tongue and quick of eye. 
 
-By: Helen Keller
+By: Miguel de Cervantes
