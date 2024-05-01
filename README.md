@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Be slow of tongue and quick of eye. 
+Quote: All wisdom does not reside in Delhi. 
 
-By: Miguel de Cervantes
+By: P. Chidambaram
