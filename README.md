@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Three things cannot be long hidden: the sun, the moon, and the truth. 
+Quote: There is no friendship, no love, like that of the parent for the child. 
 
-By: The Buddha
+By: Henry Ward Beecher
