@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All wisdom does not reside in Delhi. 
+Quote: If you want things to be different, perhaps the answer is to become different yourself. 
 
-By: P. Chidambaram
+By: Norman Vincent Peale
