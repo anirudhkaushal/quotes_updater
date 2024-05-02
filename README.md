@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you can't feed a hundred people, then feed just one. 
+Quote: When you realize there is nothing lacking, the whole world belongs to you. 
 
-By: Mother Teresa
+By: Laozi
