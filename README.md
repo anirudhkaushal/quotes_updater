@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Of all possessions a friend is the most precious. 
+Quote: However rare true love may be, it is less so than true friendship. 
 
-By: Herodotus
+By: François de La Rochefoucauld
