@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is no friendship, no love, like that of the parent for the child. 
+Quote: Of all possessions a friend is the most precious. 
 
-By: Henry Ward Beecher
+By: Herodotus
