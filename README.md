@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Very little is needed to make a happy life; it is all within yourself, in your way of thinking. 
+Quote: An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men. 
 
-By: Marcus Aurelius
+By: Thomas Fuller
