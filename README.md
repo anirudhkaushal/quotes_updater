@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men. 
+Quote: The greatest obstacle to being heroic is the doubt whether one may not be going to prove oneself a fool; the truest heroism is to resist the doubt; and the profoundest wisdom, to know when it ought to be resisted, and when it be obeyed. 
 
-By: Thomas Fuller
+By: Nathaniel Hawthorne
