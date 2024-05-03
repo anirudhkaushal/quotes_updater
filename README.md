@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you realize there is nothing lacking, the whole world belongs to you. 
+Quote: The truest wisdom is a resolute determination. 
 
-By: Laozi
+By: Napoleon
