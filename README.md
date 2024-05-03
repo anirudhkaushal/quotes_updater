@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The truest wisdom is a resolute determination. 
+Quote: Friends are those rare people who ask how we are and then wait to hear the answer. 
 
-By: Napoleon
+By: Ed Cunningham
