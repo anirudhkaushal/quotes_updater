@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The greatest obstacle to being heroic is the doubt whether one may not be going to prove oneself a fool; the truest heroism is to resist the doubt; and the profoundest wisdom, to know when it ought to be resisted, and when it be obeyed. 
+Quote: When people are like each other they tend to like each other. 
 
-By: Nathaniel Hawthorne
+By: Tony Robbins
