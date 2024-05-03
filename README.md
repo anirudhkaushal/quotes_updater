@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friends are those rare people who ask how we are and then wait to hear the answer. 
+Quote: Very little is needed to make a happy life; it is all within yourself, in your way of thinking. 
 
-By: Ed Cunningham
+By: Marcus Aurelius
