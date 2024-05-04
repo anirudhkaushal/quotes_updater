@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When people are like each other they tend to like each other. 
+Quote: Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk. 
 
-By: Tony Robbins
+By: Doug Larson
