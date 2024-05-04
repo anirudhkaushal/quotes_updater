@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Never idealize others. They will never live up to your expectations. 
+Quote: When in doubt, tell the truth. 
 
-By: Leo Buscaglia
+By: Mark Twain
