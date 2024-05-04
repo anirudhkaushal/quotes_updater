@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It's not what you look at that matters, it's what you see. 
+Quote: If you have knowledge, let others light their candles in it. 
 
-By: Henry David Thoreau
+By: Margaret Fuller
