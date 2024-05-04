@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When in doubt, tell the truth. 
+Quote: Wisdom begins in wonder. 
 
-By: Mark Twain
+By: Socrates
