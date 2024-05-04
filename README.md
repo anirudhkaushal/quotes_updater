@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk. 
+Quote: Never idealize others. They will never live up to your expectations. 
 
-By: Doug Larson
+By: Leo Buscaglia
