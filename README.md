@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I want you to be everything that's you, deep at the center of your being. 
+Quote: Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway. 
 
-By: Confucius
+By: Mary Kay Ash
