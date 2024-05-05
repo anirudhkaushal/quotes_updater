@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Programs must be written for people to read, and only incidentally for machines to execute. 
+Quote: There is nothing impossible to him who will try. 
 
-By: Hal Abelson
+By: Alexander the Great
