@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Always do your best. What you plant now, you will harvest later. 
+Quote: Programs must be written for people to read, and only incidentally for machines to execute. 
 
-By: Og Mandino
+By: Hal Abelson
