@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you have knowledge, let others light their candles in it. 
+Quote: The real problem is not whether machines think but whether men do. 
 
-By: Margaret Fuller
+By: B. F. Skinner
