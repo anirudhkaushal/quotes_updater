@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The real problem is not whether machines think but whether men do. 
+Quote: Always do your best. What you plant now, you will harvest later. 
 
-By: B. F. Skinner
+By: Og Mandino
