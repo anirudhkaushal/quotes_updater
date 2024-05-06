@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway. 
+Quote: Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing. 
 
-By: Mary Kay Ash
+By: Elie Wiesel
