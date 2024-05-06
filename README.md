@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. 
+Quote: The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems. 
 
-By: Uta Hagen
+By: Mahatma Gandhi
