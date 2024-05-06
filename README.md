@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future. 
+Quote: We are not animals. We are not a product of what has happened to us in our past. We have the power of choice. 
 
-By: Dale Turner
+By: Stephen Covey
