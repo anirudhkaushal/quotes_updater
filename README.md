@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We are not animals. We are not a product of what has happened to us in our past. We have the power of choice. 
+Quote: We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. 
 
-By: Stephen Covey
+By: Uta Hagen
