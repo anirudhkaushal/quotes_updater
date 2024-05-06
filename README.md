@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek. 
+Quote: Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future. 
 
-By: Barack Obama
+By: Dale Turner
