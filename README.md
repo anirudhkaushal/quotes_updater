@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No bird soars too high if he soars with his own wings. 
+Quote: The most certain sign of wisdom is cheerfulness. 
 
-By: William Blake
+By: Michel de Montaigne
