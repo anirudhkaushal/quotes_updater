@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life. 
+Quote: Our greatness lies not so much in being able to remake the world as being able to remake ourselves. 
 
-By: Joseph Prince
+By: Mahatma Gandhi
