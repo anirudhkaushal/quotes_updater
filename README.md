@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The most certain sign of wisdom is cheerfulness. 
+Quote: Excellence is not a skill. It is an attitude. 
 
-By: Michel de Montaigne
+By: Ralph Marston
