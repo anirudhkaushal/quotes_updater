@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: People may doubt what you say, but they will believe what you do. 
+Quote: Communications tools don't get socially interesting until they get technologically boring. 
 
-By: Lewis Cass
+By: Clay Shirky
