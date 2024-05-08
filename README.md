@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Communications tools don't get socially interesting until they get technologically boring. 
+Quote: I'm not afraid of storms, for I'm learning how to sail my ship. 
 
-By: Clay Shirky
+By: Louisa May Alcott
