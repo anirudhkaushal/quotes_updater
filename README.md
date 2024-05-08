@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We gain the strength of the temptation we resist. 
+Quote: People may doubt what you say, but they will believe what you do. 
 
-By: Ralph Waldo Emerson
+By: Lewis Cass
