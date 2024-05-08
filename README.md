@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our greatness lies not so much in being able to remake the world as being able to remake ourselves. 
+Quote: Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant. 
 
-By: Mahatma Gandhi
+By: Horace
