@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant. 
+Quote: If you're changing the world, you're working on important things. You're excited to get up in the morning. 
 
-By: Horace
+By: Larry Page
