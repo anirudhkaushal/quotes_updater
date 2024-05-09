@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I'm not afraid of storms, for I'm learning how to sail my ship. 
+Quote: You always succeed in producing a result. 
 
-By: Louisa May Alcott
+By: Tony Robbins
