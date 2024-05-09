@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You always succeed in producing a result. 
+Quote: The mind unlearns with difficulty what it has long learned. 
 
-By: Tony Robbins
+By: Seneca the Younger
