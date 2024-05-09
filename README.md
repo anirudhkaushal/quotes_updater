@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Reason and free inquiry are the only effectual agents against error. 
+Quote: All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. 
 
-By: Thomas Jefferson
+By: Winston Churchill
