@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Experience keeps a dear school, but fools will learn in no other. 
+Quote: How many cares one loses when one decides not to be something but to be someone. 
 
-By: Benjamin Franklin
+By: Coco Chanel
