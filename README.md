@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The mind unlearns with difficulty what it has long learned. 
+Quote: Experience keeps a dear school, but fools will learn in no other. 
 
-By: Seneca the Younger
+By: Benjamin Franklin
