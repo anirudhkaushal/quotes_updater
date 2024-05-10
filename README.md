@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: They must often change, who would be constant in happiness or wisdom. 
+Quote: Much wisdom often goes with fewest words. 
 
-By: Confucius
+By: Sophocles
