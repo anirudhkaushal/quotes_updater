@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Small opportunities are often the beginning of great enterprises. 
+Quote: Waste no more time arguing about what a good man should be. Be one. 
 
-By: Demosthenes
+By: Marcus Aurelius
