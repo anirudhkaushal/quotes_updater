@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Waste no more time arguing about what a good man should be. Be one. 
+Quote: They must often change, who would be constant in happiness or wisdom. 
 
-By: Marcus Aurelius
+By: Confucius
