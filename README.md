@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Much wisdom often goes with fewest words. 
+Quote: Courage is not the absence of fear, but simply moving on with dignity despite that fear. 
 
-By: Sophocles
+By: Pat Riley
