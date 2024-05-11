@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost. 
+Quote: Freedom is not worth having if it does not connote freedom to err. 
 
-By: Dalai Lama
+By: Mahatma Gandhi
