@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In every walk with nature, one receives far more than he seeks. 
+Quote: People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost. 
 
-By: John Muir
+By: Dalai Lama
