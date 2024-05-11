@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Freedom is not worth having if it does not connote freedom to err. 
+Quote: He is no fool who gives what he cannot keep to gain what he cannot lose. 
 
-By: Mahatma Gandhi
+By: Jim Elliot
