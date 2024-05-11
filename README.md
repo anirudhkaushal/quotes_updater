@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Courage is not the absence of fear, but simply moving on with dignity despite that fear. 
+Quote: In every walk with nature, one receives far more than he seeks. 
 
-By: Pat Riley
+By: John Muir
