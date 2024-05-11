@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The function of wisdom is to discriminate between good and evil. 
+Quote: Any sufficiently advanced technology is equivalent to magic. 
 
-By: Cicero
+By: Arthur C. Clarke
