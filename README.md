@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He is no fool who gives what he cannot keep to gain what he cannot lose. 
+Quote: The function of wisdom is to discriminate between good and evil. 
 
-By: Jim Elliot
+By: Cicero
