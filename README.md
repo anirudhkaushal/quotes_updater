@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Any sufficiently advanced technology is equivalent to magic. 
+Quote: Start where you are. Use what you have. Do what you can. 
 
-By: Arthur C. Clarke
+By: Arthur Ashe
