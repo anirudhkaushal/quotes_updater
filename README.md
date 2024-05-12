@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is no failure except in no longer trying. 
+Quote: By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning. 
 
-By: Elbert Hubbard
+By: Laozi
