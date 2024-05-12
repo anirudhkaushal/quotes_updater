@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning. 
+Quote: I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can. 
 
-By: Laozi
+By: Bernard Shaw
