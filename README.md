@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can. 
+Quote: Whoso loves, believes the impossible. 
 
-By: Bernard Shaw
+By: Elizabeth Browning
