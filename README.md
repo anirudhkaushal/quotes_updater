@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Whoso loves, believes the impossible. 
+Quote: We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. 
 
-By: Elizabeth Browning
+By: Uta Hagen
