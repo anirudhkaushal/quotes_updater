@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When something is important enough, you do it even if the odds are not in your favor. 
+Quote: A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. 
 
-By: Elon Musk
+By: Laozi
