@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You need chaos in your soul to give birth to a dancing star. 
+Quote: Friends are the siblings God never gave us. 
 
-By: Friedrich Nietzsche
+By: Mencius
