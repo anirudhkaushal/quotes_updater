@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time. 
+Quote: When something is important enough, you do it even if the odds are not in your favor. 
 
-By: Jim Bouton
+By: Elon Musk
