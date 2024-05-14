@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine. 
+Quote: Sustaining true friendship is a lot more challenging than we give it credit for. 
 
-By: Thomas Jefferson
+By: Mariella Frostrup
