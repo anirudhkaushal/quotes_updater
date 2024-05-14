@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. 
+Quote: We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. 
 
-By: Laozi
+By: Uta Hagen
