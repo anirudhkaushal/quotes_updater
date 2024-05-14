@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it. 
+Quote: The greatest mistake you can make in life is to be continually fearing you will make one. 
 
-By: W. Clement Stone
+By: Elbert Hubbard
