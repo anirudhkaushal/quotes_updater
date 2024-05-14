@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you don't know where you are going, you will probably end up somewhere else. 
+Quote: But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine. 
 
-By: Laurence J. Peter
+By: Thomas Jefferson
