@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. 
+Quote: If you don't know where you are going, you will probably end up somewhere else. 
 
-By: Uta Hagen
+By: Laurence J. Peter
