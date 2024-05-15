@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The thing always happens that you really believe in; and the belief in a thing makes it happen. 
+Quote: Never complain and never explain. 
 
-By: Frank Lloyd Wright
+By: Benjamin Disraeli
