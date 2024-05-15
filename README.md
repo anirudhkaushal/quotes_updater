@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Never complain and never explain. 
+Quote: To conquer fear is the beginning of wisdom. 
 
-By: Benjamin Disraeli
+By: Bertrand Russell
