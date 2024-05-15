@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What lies behind us and what lies before us are tiny matters compared to what lies within us. 
+Quote: Along with success comes a reputation for wisdom. 
 
-By: Ralph Waldo Emerson
+By: Euripides
