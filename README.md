@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To conquer fear is the beginning of wisdom. 
+Quote: What lies behind us and what lies before us are tiny matters compared to what lies within us. 
 
-By: Bertrand Russell
+By: Ralph Waldo Emerson
