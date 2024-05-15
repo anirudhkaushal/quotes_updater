@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. 
+Quote: The thing always happens that you really believe in; and the belief in a thing makes it happen. 
 
-By: Winston Churchill
+By: Frank Lloyd Wright
