@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The greatest mistake you can make in life is to be continually fearing you will make one. 
+Quote: Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. 
 
-By: Elbert Hubbard
+By: Winston Churchill
