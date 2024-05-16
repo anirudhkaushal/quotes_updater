@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character. 
+Quote: Good actions give strength to ourselves and inspire good actions in others. 
 
-By: Margaret Chase Smith
+By: Plato
