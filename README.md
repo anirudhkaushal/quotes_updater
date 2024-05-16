@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We all live with the objective of being happy; our lives are all different and yet the same. 
+Quote: The universe is full of magical things, patiently waiting for our wits to grow sharper. 
 
-By: Anne Frank
+By: Eden Phillpotts
