@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Applause is a receipt, not a bill. 
+Quote: The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character. 
 
-By: Dale Carnegie
+By: Margaret Chase Smith
