@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The extreme limit of wisdom, that's what the public calls madness. 
+Quote: Applause is a receipt, not a bill. 
 
-By: Jean Cocteau
+By: Dale Carnegie
