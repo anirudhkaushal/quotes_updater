@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The universe is full of magical things, patiently waiting for our wits to grow sharper. 
+Quote: The extreme limit of wisdom, that's what the public calls madness. 
 
-By: Eden Phillpotts
+By: Jean Cocteau
