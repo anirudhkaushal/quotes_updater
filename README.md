@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A true friend is someone who is there for you when he'd rather be anywhere else. 
+Quote: To profit from good advice requires more wisdom than to give it. 
 
-By: Len Wein
+By: Wilson Mizner
