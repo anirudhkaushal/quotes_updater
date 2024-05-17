@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Whatever has the nature of arising has the nature of ceasing. 
+Quote: There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else. 
 
-By: The Buddha
+By: Sam Walton
