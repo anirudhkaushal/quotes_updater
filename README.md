@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: God made me fast. And when I run, I feel His pleasure. 
+Quote: Whatever has the nature of arising has the nature of ceasing. 
 
-By: Eric Liddell
+By: The Buddha
