@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Sometimes our fate resembles a fruit tree in winter. Who would think that those branches would turn green again and blossom, but we hope it, we know it. 
+Quote: God made me fast. And when I run, I feel His pleasure. 
 
-By: Johann Wolfgang von Goethe
+By: Eric Liddell
