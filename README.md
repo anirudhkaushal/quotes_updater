@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Good actions give strength to ourselves and inspire good actions in others. 
+Quote: Sometimes our fate resembles a fruit tree in winter. Who would think that those branches would turn green again and blossom, but we hope it, we know it. 
 
-By: Plato
+By: Johann Wolfgang von Goethe
