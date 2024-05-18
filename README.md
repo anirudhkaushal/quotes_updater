@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To profit from good advice requires more wisdom than to give it. 
+Quote: There are three faithful friends - an old wife, an old dog, and ready money. 
 
-By: Wilson Mizner
+By: Benjamin Franklin
