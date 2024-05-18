@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I am not the first Buddha who came upon Earth, nor shall I be the last. In due time, another Buddha will arise in the world - a Holy One, a supremely enlightened One, endowed with wisdom in conduct, auspicious, knowing the universe, an incomparable leader of men, a master of angels and mortals. 
+Quote: If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude. 
 
-By: The Buddha
+By: Colin Powell
