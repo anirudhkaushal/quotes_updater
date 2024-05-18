@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There are three faithful friends - an old wife, an old dog, and ready money. 
+Quote: We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution. 
 
-By: Benjamin Franklin
+By: Abraham Lincoln
