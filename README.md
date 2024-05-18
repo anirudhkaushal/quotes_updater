@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution. 
+Quote: I am not the first Buddha who came upon Earth, nor shall I be the last. In due time, another Buddha will arise in the world - a Holy One, a supremely enlightened One, endowed with wisdom in conduct, auspicious, knowing the universe, an incomparable leader of men, a master of angels and mortals. 
 
-By: Abraham Lincoln
+By: The Buddha
