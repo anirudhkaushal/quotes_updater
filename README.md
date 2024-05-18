@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude. 
+Quote: If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away. 
 
-By: Colin Powell
+By: John Steinbeck
