@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To be fully alive, fully human, and completely awake is to be continually thrown out of the nest. 
+Quote: If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible. 
 
-By: Pema Chödrön
+By: Epictetus
