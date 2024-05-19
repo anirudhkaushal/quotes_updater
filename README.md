@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Should you find a wise critic to point out your faults, follow him as you would a guide to hidden treasure. 
+Quote: Accept the challenges so that you can feel the exhilaration of victory. 
 
-By: The Buddha
+By: George S. Patton
