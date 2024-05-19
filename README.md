@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is not one big cosmic meaning for all, there is only the meaning we each give to our life. 
+Quote: Wisdom has its root in goodness, not goodness its root in wisdom. 
 
-By: Anaïs Nin
+By: Ralph Waldo Emerson
