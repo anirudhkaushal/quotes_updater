@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible. 
+Quote: There is not one big cosmic meaning for all, there is only the meaning we each give to our life. 
 
-By: Epictetus
+By: Anaïs Nin
