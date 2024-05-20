@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Knowledge speaks, but wisdom listens. 
+Quote: Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family. 
 
-By: Jimi Hendrix
+By: Salman Rushdie
