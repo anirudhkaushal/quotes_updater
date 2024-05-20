@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The sum of wisdom is that time is never lost that is devoted to work. 
+Quote: You can't win unless you learn how to lose. 
 
-By: Ralph Waldo Emerson
+By: Kareem Abdul-Jabbar
