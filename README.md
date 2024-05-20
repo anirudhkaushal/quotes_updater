@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The supreme art of war is to subdue the enemy without fighting. 
+Quote: No alibi will save you from accepting the responsibility. 
 
-By: Sun Tzu
+By: Napoleon Hill
