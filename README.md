@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom has its root in goodness, not goodness its root in wisdom. 
+Quote: The sum of wisdom is that time is never lost that is devoted to work. 
 
 By: Ralph Waldo Emerson
