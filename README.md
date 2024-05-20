@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You can't win unless you learn how to lose. 
+Quote: Knowledge speaks, but wisdom listens. 
 
-By: Kareem Abdul-Jabbar
+By: Jimi Hendrix
