@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family. 
+Quote: The supreme art of war is to subdue the enemy without fighting. 
 
-By: Salman Rushdie
+By: Sun Tzu
