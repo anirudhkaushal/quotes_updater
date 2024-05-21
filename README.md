@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We can only learn to love by loving. 
+Quote: The world has the habit of making room for the man whose actions show that he knows where he is going. 
 
-By: Iris Murdoch
+By: Napoleon Hill
