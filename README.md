@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Your worst enemy cannot harm you as much as your own unguarded thoughts. 
+Quote: A friend is a gift you give yourself. 
 
-By: The Buddha
+By: Robert Louis Stevenson
