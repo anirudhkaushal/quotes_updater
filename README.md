@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The world has the habit of making room for the man whose actions show that he knows where he is going. 
+Quote: Your worst enemy cannot harm you as much as your own unguarded thoughts. 
 
-By: Napoleon Hill
+By: The Buddha
