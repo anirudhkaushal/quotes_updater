@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No alibi will save you from accepting the responsibility. 
+Quote: We can only learn to love by loving. 
 
-By: Napoleon Hill
+By: Iris Murdoch
