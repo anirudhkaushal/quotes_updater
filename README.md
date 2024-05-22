@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Opportunity often comes disguised in the form of misfortune, or temporary defeat. 
+Quote: We have committed the Golden Rule to memory; let us now commit it to life. 
 
-By: Napoleon Hill
+By: Edwin Markham
