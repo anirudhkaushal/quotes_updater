@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again. 
+Quote: Opportunity often comes disguised in the form of misfortune, or temporary defeat. 
 
-By: John McCain
+By: Napoleon Hill
