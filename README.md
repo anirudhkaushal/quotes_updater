@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You have to do your own growing no matter how tall your grandfather was. 
+Quote: Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again. 
 
-By: Abraham Lincoln
+By: John McCain
