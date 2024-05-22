@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes. 
+Quote: Smile, breathe and go slowly. 
 
-By: Carl Jung
+By: Thích Nhất Hạnh
