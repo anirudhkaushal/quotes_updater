@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We have committed the Golden Rule to memory; let us now commit it to life. 
+Quote: Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes. 
 
-By: Edwin Markham
+By: Carl Jung
