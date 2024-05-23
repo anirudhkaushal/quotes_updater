@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Adversity causes some men to break, others to break records. 
+Quote: Learn from yesterday, live for today, hope for tomorrow. 
 
-By: William Arthur Ward
+By: Albert Einstein
