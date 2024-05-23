@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In every walk with nature, one receives far more than he seeks. 
+Quote: The supreme art of war is to subdue the enemy without fighting. 
 
-By: John Muir
+By: Sun Tzu
