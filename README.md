@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The supreme art of war is to subdue the enemy without fighting. 
+Quote: Adversity causes some men to break, others to break records. 
 
-By: Sun Tzu
+By: William Arthur Ward
