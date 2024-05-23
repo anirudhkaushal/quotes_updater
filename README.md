@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Learn from yesterday, live for today, hope for tomorrow. 
+Quote: Happiness is found in doing, not merely possessing. 
 
-By: Albert Einstein
+By: Napoleon Hill
