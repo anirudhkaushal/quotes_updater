@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is good even for old men to learn wisdom. 
+Quote: In every walk with nature, one receives far more than he seeks. 
 
-By: Aeschylus
+By: John Muir
