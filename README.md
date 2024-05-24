@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The inherent vice of capitalism is the unequal sharing of blessings; the inherent virtue of socialism is the equal sharing of miseries. 
+Quote: Great ideas often receive violent opposition from mediocre minds. 
 
-By: Winston Churchill
+By: Albert Einstein
