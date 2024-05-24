@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love has no age, no limit; and no death. 
+Quote: The inherent vice of capitalism is the unequal sharing of blessings; the inherent virtue of socialism is the equal sharing of miseries. 
 
-By: John Galsworthy
+By: Winston Churchill
