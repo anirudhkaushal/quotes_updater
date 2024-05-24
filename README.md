@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Happiness is found in doing, not merely possessing. 
+Quote: When you are content to be simply yourself and don't compare or compete, everybody will respect you. 
 
-By: Napoleon Hill
+By: Laozi
