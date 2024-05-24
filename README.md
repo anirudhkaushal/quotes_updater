@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you are content to be simply yourself and don't compare or compete, everybody will respect you. 
+Quote: Gratitude is the fairest blossom which springs from the soul. 
 
-By: Laozi
+By: Henry K. Beecher
