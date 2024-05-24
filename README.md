@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Gratitude is the fairest blossom which springs from the soul. 
+Quote: If you only have a hammer, you tend to see every problem as a nail. 
 
-By: Henry K. Beecher
+By: Abraham Maslow
