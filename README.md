@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love is blind; friendship closes its eyes. 
+Quote: Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest. 
 
-By: Friedrich Nietzsche
+By: Sri Chinmoy
