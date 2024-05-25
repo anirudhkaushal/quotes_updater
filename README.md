@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct. 
+Quote: Those who cannot learn from history are doomed to repeat it. 
 
-By: Elizabeth Kapu'uwailani Lindsey
+By: George Santayana
