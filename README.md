@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Those who cannot learn from history are doomed to repeat it. 
+Quote: Love is blind; friendship closes its eyes. 
 
-By: George Santayana
+By: Friedrich Nietzsche
