@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts. 
+Quote: A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them. 
 
-By: Aristotle
+By: John C. Maxwell
