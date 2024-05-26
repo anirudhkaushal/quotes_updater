@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Your talent is God's gift to you. What you do with it is your gift back to God. 
+Quote: I am not bothered by the fact that I am unknown. I am bothered when I do not know others. 
 
-By: Leo Buscaglia
+By: Confucius
