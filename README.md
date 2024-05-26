@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest. 
+Quote: Your talent is God's gift to you. What you do with it is your gift back to God. 
 
-By: Sri Chinmoy
+By: Leo Buscaglia
