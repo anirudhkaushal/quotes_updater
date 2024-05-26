@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Consult not your fears but your hopes and your dreams. Think not about your frustrations, but about your unfulfilled potential. Concern yourself not with what you tried and failed in, but with what it is still possible for you to do. 
+Quote: When in doubt, tell the truth. 
 
-By: Pope John XXIII
+By: Mark Twain
