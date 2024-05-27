@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The fox has many tricks. The hedgehog has but one. But that is the best of all. 
+Quote: I have never been hurt by anything I didn't say. 
 
-By: Erasmus
+By: Calvin Coolidge
