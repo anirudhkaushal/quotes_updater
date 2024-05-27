@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: How wonderful that we have met with a paradox. Now we have some hope of making progress. 
+Quote: How far that little candle throws its beams! So shines a good deed in a naughty world. 
 
-By: Niels Bohr
+By: William Shakespeare
