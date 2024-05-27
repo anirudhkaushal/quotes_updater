@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I have never been hurt by anything I didn't say. 
+Quote: The best thing in every noble dream is the dreamer... 
 
-By: Calvin Coolidge
+By: Moncure D. Conway
