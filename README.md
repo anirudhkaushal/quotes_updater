@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The best thing in every noble dream is the dreamer... 
+Quote: Be your own hero, it's cheaper than a movie ticket. 
 
-By: Moncure D. Conway
+By: Doug Horton
