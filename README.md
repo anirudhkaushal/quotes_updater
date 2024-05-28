@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Be your own hero, it's cheaper than a movie ticket. 
+Quote: Speak when you are angry, and you will make the best speech you will ever regret. 
 
-By: Doug Horton
+By: Ambrose Bierce
