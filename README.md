@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Don't judge each day by the harvest you reap but by the seeds that you plant. 
+Quote: If you love life, don't waste time, for time is what life is made up of. 
 
-By: Robert Louis Stevenson
+By: Bruce Lee
