@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Speak when you are angry, and you will make the best speech you will ever regret. 
+Quote: To dare is to lose ones footing momentarily. To not dare is to lose oneself. 
 
-By: Ambrose Bierce
+By: Søren Kierkegaard
