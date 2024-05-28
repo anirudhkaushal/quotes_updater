@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you love life, don't waste time, for time is what life is made up of. 
+Quote: The greatest mistake you can make in life is to be continually fearing you will make one. 
 
-By: Bruce Lee
+By: Elbert Hubbard
