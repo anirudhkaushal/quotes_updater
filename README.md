@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Good luck is another name for tenacity of purpose. 
+Quote: Know how to listen, and you will profit even from those who talk badly. 
 
-By: Ralph Waldo Emerson
+By: Plutarch
