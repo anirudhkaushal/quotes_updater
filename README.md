@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I can, therefore I am. 
+Quote: You're not obligated to win. You're obligated to keep trying to do the best you can every day. 
 
-By: Simone Weil
+By: Marian Wright Edelman
