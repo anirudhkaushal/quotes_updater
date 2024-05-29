@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The greatest mistake you can make in life is to be continually fearing you will make one. 
+Quote: I can, therefore I am. 
 
-By: Elbert Hubbard
+By: Simone Weil
