@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You give before you get. 
+Quote: Good luck is another name for tenacity of purpose. 
 
-By: Napoleon Hill
+By: Ralph Waldo Emerson
