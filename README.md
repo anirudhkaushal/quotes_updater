@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You have enemies? Good. That means you've stood up for something, sometime in your life. 
+Quote: Life is movement-we breathe, we eat, we walk, we move! 
 
-By: Winston Churchill
+By: John Pierrakos
