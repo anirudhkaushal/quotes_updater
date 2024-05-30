@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information? 
+Quote: For beautiful eyes, look for the good in others; for beautiful lips, speak only words of kindness; and for poise, walk with the knowledge that you are never alone. 
 
-By: George Eliot
+By: Audrey Hepburn
