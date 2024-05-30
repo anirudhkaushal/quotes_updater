@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In the business world, everyone is paid in two coins: cash and experience. Take the experience first; the cash will come later. 
+Quote: Don't cry because it's over. Smile because it happened. 
 
-By: Harold Geneen
+By: Dr. Seuss
