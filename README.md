@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life is movement-we breathe, we eat, we walk, we move! 
+Quote: The deepest craving of human nature is the need to be appreciated. 
 
-By: John Pierrakos
+By: William James
