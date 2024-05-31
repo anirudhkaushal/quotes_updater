@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: No one has ever become poor by giving. 
+Quote: All serious daring starts from within. 
 
-By: Anne Frank
+By: Harriet Beecher Stowe
