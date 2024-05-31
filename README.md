@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The deepest craving of human nature is the need to be appreciated. 
+Quote: No one has ever become poor by giving. 
 
-By: William James
+By: Anne Frank
