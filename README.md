@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All serious daring starts from within. 
+Quote: If you want a thing done well, do it yourself. 
 
-By: Harriet Beecher Stowe
+By: Napoleon
