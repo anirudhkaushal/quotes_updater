@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I define friendship as a bond that transcends all barriers. When you are ready to expect anything and everything from friends, good, bad or ugly... that's what I call true friendship. 
+Quote: Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable. 
 
-By: Harbhajan Singh
+By: Carl Jung
