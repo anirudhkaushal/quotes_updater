@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is nothing impossible to him who will try. 
+Quote: A leader is one who knows the way, goes the way, and shows the way. 
 
-By: Alexander the Great
+By: John C. Maxwell
