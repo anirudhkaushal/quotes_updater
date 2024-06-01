@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable. 
+Quote: If you spend too much time thinking about a thing, you'll never get it done. 
 
-By: Carl Jung
+By: Bruce Lee
