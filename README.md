@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The function of wisdom is to discriminate between good and evil. 
+Quote: A friend may well be reckoned the masterpiece of nature. 
 
-By: Cicero
+By: Ralph Waldo Emerson
