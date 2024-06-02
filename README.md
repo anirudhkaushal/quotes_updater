@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A leader is one who knows the way, goes the way, and shows the way. 
+Quote: Do not waste yourself in rejection, nor bark against the bad, but chant the beauty of the good. 
 
-By: John C. Maxwell
+By: Ralph Waldo Emerson
