@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Do not waste yourself in rejection, nor bark against the bad, but chant the beauty of the good. 
+Quote: The fact is, with every friendship you make, and every bond of trust you establish, you are shaping the image of America projected to the rest of the world. That is so important. So when you study abroad, you're actually helping to make America stronger. 
 
-By: Ralph Waldo Emerson
+By: Michelle Obama
