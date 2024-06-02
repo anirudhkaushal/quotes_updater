@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A friend may well be reckoned the masterpiece of nature. 
+Quote: In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists. 
 
-By: Ralph Waldo Emerson
+By: Eric Hoffer
