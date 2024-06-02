@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Fear makes strangers of people who would be friends. 
+Quote: The function of wisdom is to discriminate between good and evil. 
 
-By: Shirley MacLaine
+By: Cicero
