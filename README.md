@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The only journey is the one within. 
+Quote: There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else. 
 
-By: Rainer Maria Rilke
+By: Sam Walton
