@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love is the attempt to form a friendship inspired by beauty. 
+Quote: It is impossible for a man to learn what he thinks he already knows. 
 
-By: Cicero
+By: Epictetus
