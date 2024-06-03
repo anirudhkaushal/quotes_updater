@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Spectacular achievement is always preceded by unspectacular preparation. 
+Quote: Love is the attempt to form a friendship inspired by beauty. 
 
-By: Robert Schuller
+By: Cicero
