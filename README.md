@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain. 
+Quote: Spectacular achievement is always preceded by unspectacular preparation. 
 
-By: Kahlil Gibran
+By: Robert Schuller
