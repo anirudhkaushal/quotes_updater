@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them. 
+Quote: And I love that even in the toughest moments, when we're all sweating it - when we're worried that the bill won't pass, and it seems like all is lost - Barack never lets himself get distracted by the chatter and the noise. Just like his grandmother, he just keeps getting up and moving forward... with patience and wisdom, and courage and grace. 
 
-By: Denis Waitley
+By: Michelle Obama
