@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is impossible for a man to learn what he thinks he already knows. 
+Quote: The ladder of success is never crowded at the top. 
 
-By: Epictetus
+By: Napoleon Hill
