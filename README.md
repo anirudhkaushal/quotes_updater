@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime. 
+Quote: Yesterday's home runs don't win today's games. 
 
-By: Laozi
+By: Babe Ruth
