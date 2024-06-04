@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Yesterday's home runs don't win today's games. 
+Quote: There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them. 
 
-By: Babe Ruth
+By: Denis Waitley
