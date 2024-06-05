@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values. 
+Quote: Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius. 
 
-By: Sidney Hook
+By: Wolfgang Amadeus Mozart
