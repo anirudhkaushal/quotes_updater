@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Bad times have a scientific value. These are occasions a good learner would not miss. 
+Quote: Knowing others is wisdom, knowing yourself is Enlightenment. 
 
-By: Ralph Waldo Emerson
+By: Laozi
