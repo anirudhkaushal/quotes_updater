@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: May all beings have happy minds. 
+Quote: Bad times have a scientific value. These are occasions a good learner would not miss. 
 
-By: The Buddha
+By: Ralph Waldo Emerson
