@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Think how hard physics would be if particles could think. 
+Quote: May all beings have happy minds. 
 
-By: Murray Gell-Mann
+By: The Buddha
