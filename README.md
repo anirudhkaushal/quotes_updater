@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Your sacred space is where you can find yourself again and again. 
+Quote: Love is the master key that opens the gates of happiness. 
 
-By: Joseph Campbell
+By: Oliver Wendell Holmes Jr.
