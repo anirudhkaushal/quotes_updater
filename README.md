@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It all depends on how we look at things, and not how they are in themselves. 
+Quote: Change your life today. Don't gamble on the future, act now, without delay. 
 
-By: Carl Jung
+By: Simone de Beauvoir
