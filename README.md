@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love is the master key that opens the gates of happiness. 
+Quote: All wisdom does not reside in Delhi. 
 
-By: Oliver Wendell Holmes Jr.
+By: P. Chidambaram
