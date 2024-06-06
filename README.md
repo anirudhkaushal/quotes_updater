@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All wisdom does not reside in Delhi. 
+Quote: It all depends on how we look at things, and not how they are in themselves. 
 
-By: P. Chidambaram
+By: Carl Jung
