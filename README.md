@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Imagination is more important than knowledge... 
+Quote: Your sacred space is where you can find yourself again and again. 
 
-By: Albert Einstein
+By: Joseph Campbell
