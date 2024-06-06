@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Knowing others is wisdom, knowing yourself is Enlightenment. 
+Quote: Imagination is more important than knowledge... 
 
-By: Laozi
+By: Albert Einstein
