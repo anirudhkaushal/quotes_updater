@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Change your life today. Don't gamble on the future, act now, without delay. 
+Quote: Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together. 
 
-By: Simone de Beauvoir
+By: Mariella Frostrup
