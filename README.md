@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense. 
+Quote: I love you the more in that I believe you had liked me for my own sake and for nothing else. 
 
-By: Thomas Edison
+By: John Keats
