@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I can't change the direction of the wind, but I can adjust my sails to always reach my destination. 
+Quote: Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship. 
 
-By: Jimmy Dean
+By: Mother Angelica
