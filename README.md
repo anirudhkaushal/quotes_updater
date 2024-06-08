@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Music in the soul can be heard by the universe. 
+Quote: Good actions give strength to ourselves and inspire good actions in others. 
 
-By: Laozi
+By: Plato
