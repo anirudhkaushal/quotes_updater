@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Good actions give strength to ourselves and inspire good actions in others. 
+Quote: You can fool all the people some of the time, and some of the people all the time, but you cannot fool all the people all the time. 
 
-By: Plato
+By: Abraham Lincoln
