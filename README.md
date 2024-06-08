@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friends show their love in times of trouble, not in happiness. 
+Quote: To see things in the seed, that is genius. 
 
-By: Euripides
+By: Laozi
