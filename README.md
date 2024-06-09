@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To be great is to be misunderstood. 
+Quote: Friendship is always a sweet responsibility, never an opportunity. 
 
-By: Ralph Waldo Emerson
+By: Kahlil Gibran
