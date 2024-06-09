@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship is always a sweet responsibility, never an opportunity. 
+Quote: Love is the only force capable of transforming an enemy into a friend. 
 
-By: Kahlil Gibran
+By: Martin Luther King Jr.
