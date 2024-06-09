@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To see things in the seed, that is genius. 
+Quote: Speak low, if you speak love. 
 
-By: Laozi
+By: William Shakespeare
