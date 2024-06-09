@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Make it your habit not to be critical about small things. 
+Quote: Never explain - your friends do not need it and your enemies will not believe you anyway. 
 
-By: Edward Everett Hale
+By: Elbert Hubbard
