@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Never explain - your friends do not need it and your enemies will not believe you anyway. 
+Quote: To be great is to be misunderstood. 
 
-By: Elbert Hubbard
+By: Ralph Waldo Emerson
