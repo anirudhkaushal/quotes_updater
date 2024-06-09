@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Speak low, if you speak love. 
+Quote: Make it your habit not to be critical about small things. 
 
-By: William Shakespeare
+By: Edward Everett Hale
