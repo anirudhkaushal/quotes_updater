@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present. 
+Quote: You cannot have what you do not want. 
 
-By: Babatunde Olatunji
+By: John Acosta
