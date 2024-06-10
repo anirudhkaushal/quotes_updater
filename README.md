@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love is the only force capable of transforming an enemy into a friend. 
+Quote: I want my friend to miss me as long as I miss him. 
 
-By: Martin Luther King Jr.
+By: Augustine of Hippo
