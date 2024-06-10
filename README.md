@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You really can change the world if you care enough. 
+Quote: One of the tests of leadership is the ability to recognize a problem before it becomes an emergency. 
 
-By: Marian Wright Edelman
+By: Olivier Messiaen
