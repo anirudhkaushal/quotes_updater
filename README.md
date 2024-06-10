@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I want my friend to miss me as long as I miss him. 
+Quote: You really can change the world if you care enough. 
 
-By: Augustine of Hippo
+By: Marian Wright Edelman
