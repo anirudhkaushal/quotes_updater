@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One of the tests of leadership is the ability to recognize a problem before it becomes an emergency. 
+Quote: Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present. 
 
-By: Olivier Messiaen
+By: Babatunde Olatunji
