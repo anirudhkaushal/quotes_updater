@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You cannot have what you do not want. 
+Quote: A single rose can be my garden... a single friend, my world. 
 
-By: John Acosta
+By: Leo Buscaglia
