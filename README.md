@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I know but one freedom and that is the freedom of the mind. 
+Quote: Genius is one percent inspiration and ninety-nine percent perspiration. 
 
-By: Antoine de Saint-Exupéry
+By: Thomas Edison
