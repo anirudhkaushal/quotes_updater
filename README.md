@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Genius is one percent inspiration and ninety-nine percent perspiration. 
+Quote: Every artist dips his brush in his own soul, and paints his own nature into his pictures. 
 
-By: Thomas Edison
+By: Henry Ward Beecher
