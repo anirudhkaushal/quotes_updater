@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Knowing is not enough; we must apply! 
+Quote: I know but one freedom and that is the freedom of the mind. 
 
-By: Johann Wolfgang von Goethe
+By: Antoine de Saint-Exupéry
