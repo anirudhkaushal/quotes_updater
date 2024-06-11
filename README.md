@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Decision is a risk rooted in the courage of being free. 
+Quote: Don't judge each day by the harvest you reap but by the seeds that you plant. 
 
-By: Paul Tillich
+By: Robert Louis Stevenson
