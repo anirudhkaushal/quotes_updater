@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A single rose can be my garden... a single friend, my world. 
+Quote: Knowing is not enough; we must apply! 
 
-By: Leo Buscaglia
+By: Johann Wolfgang von Goethe
