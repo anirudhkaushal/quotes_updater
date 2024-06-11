@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Every artist dips his brush in his own soul, and paints his own nature into his pictures. 
+Quote: Decision is a risk rooted in the courage of being free. 
 
-By: Henry Ward Beecher
+By: Paul Tillich
