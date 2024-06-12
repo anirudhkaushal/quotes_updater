@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Don't judge each day by the harvest you reap but by the seeds that you plant. 
+Quote: Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy. 
 
-By: Robert Louis Stevenson
+By: Norman Vincent Peale
