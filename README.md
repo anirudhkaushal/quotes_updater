@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy. 
+Quote: I believe in one thing only, the power of human will. 
 
-By: Norman Vincent Peale
+By: Joseph Stalin
