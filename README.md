@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: So long as a person is capable of self-renewal they are a living being. 
+Quote: The power of intuitive understanding will protect you from harm until the end of your days. 
 
-By: Henri-Frédéric Amiel
+By: Laozi
