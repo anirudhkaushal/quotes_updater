@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I believe in one thing only, the power of human will. 
+Quote: Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots. 
 
-By: Joseph Stalin
+By: George Santayana
