@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots. 
+Quote: So long as a person is capable of self-renewal they are a living being. 
 
-By: George Santayana
+By: Henri-Frédéric Amiel
