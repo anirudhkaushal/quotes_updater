@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Smile, breathe and go slowly. 
+Quote: Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom. 
 
-By: Thích Nhất Hạnh
+By: Marcel Proust
