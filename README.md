@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You have to believe in yourself. 
+Quote: Smile, breathe and go slowly. 
 
-By: Sun Tzu
+By: Thích Nhất Hạnh
