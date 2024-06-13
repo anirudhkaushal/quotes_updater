@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Nothing diminishes anxiety faster than action. 
+Quote: Change your thoughts and you change your world. 
 
-By: Walter Inglis Anderson
+By: Norman Vincent Peale
