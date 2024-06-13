@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. 
+Quote: You have to believe in yourself. 
 
-By: Winston Churchill
+By: Sun Tzu
