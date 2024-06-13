@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom. 
+Quote: It is with our passions, as it is with fire and water, they are good servants but bad masters. 
 
-By: Marcel Proust
+By: Aesop
