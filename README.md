@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Change your thoughts and you change your world. 
+Quote: Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe. 
 
-By: Norman Vincent Peale
+By: Winston Churchill
