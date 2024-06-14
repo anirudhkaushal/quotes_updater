@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Change your thoughts and you change your world. 
+Quote: When you come to the end of your rope, tie a knot and hang on. 
 
-By: Norman Vincent Peale
+By: Franklin D. Roosevelt
