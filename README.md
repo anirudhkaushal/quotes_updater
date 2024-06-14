@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A friend is what the heart needs all the time. 
+Quote: Difficulties are things that show a person what they are. 
 
-By: Henry van Dyke Jr.
+By: Epictetus
