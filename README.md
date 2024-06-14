@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is with our passions, as it is with fire and water, they are good servants but bad masters. 
+Quote: Change your thoughts and you change your world. 
 
-By: Aesop
+By: Norman Vincent Peale
