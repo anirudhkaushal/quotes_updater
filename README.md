@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Gratitude is riches. Complaint is poverty. 
+Quote: Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you. 
 
-By: Doris Day
+By: Nathaniel Hawthorne
