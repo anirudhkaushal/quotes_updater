@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you come to the end of your rope, tie a knot and hang on. 
+Quote: A friend is what the heart needs all the time. 
 
-By: Franklin D. Roosevelt
+By: Henry van Dyke Jr.
