@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Difficulties are things that show a person what they are. 
+Quote: Gratitude is riches. Complaint is poverty. 
 
-By: Epictetus
+By: Doris Day
