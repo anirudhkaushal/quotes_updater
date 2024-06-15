@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Be the chief but never the lord. 
+Quote: Choose a job you love, and you will never have to work a day in your life. 
 
-By: Laozi
+By: Confucius
