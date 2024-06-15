@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Be yourself; everyone else is already taken. 
+Quote: Fame usually comes to those who are thinking about something else. 
 
-By: Oscar Wilde
+By: Oliver Wendell Holmes Jr.
