@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Choose a job you love, and you will never have to work a day in your life. 
+Quote: Be yourself; everyone else is already taken. 
 
-By: Confucius
+By: Oscar Wilde
