@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We make our own fortunes and we call them fate. 
+Quote: True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us. 
 
-By: Benjamin Disraeli
+By: Isocrates
