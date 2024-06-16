@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: By accepting yourself and being fully what you are, your presence can make others happy. 
+Quote: We make our own fortunes and we call them fate. 
 
-By: Jane Roberts
+By: Benjamin Disraeli
