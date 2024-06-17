@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Just because something doesn't do what you planned it to do doesn't mean it's useless. 
+Quote: The root of suffering is attachment. 
 
-By: Thomas Edison
+By: The Buddha
