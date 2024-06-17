@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is no greater harm than that of time wasted. 
+Quote: Just because something doesn't do what you planned it to do doesn't mean it's useless. 
 
-By: Michelangelo
+By: Thomas Edison
