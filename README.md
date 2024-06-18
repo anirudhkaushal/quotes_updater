@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To climb steep hills requires a slow pace at first. 
+Quote: Our most intimate friend is not he to whom we show the worst, but the best of our nature. 
 
-By: William Shakespeare
+By: Nathaniel Hawthorne
