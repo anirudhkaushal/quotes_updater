@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our most intimate friend is not he to whom we show the worst, but the best of our nature. 
+Quote: They must often change, who would be constant in happiness or wisdom. 
 
-By: Nathaniel Hawthorne
+By: Confucius
