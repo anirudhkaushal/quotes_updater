@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The root of suffering is attachment. 
+Quote: Only I can change my life. No one can do it for me. 
 
-By: The Buddha
+By: Carol Burnett
