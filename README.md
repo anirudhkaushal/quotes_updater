@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is only one success - to be able to spend your life in your own way. 
+Quote: What is not started today is never finished tomorrow. 
 
-By: Christopher Morley
+By: Johann Wolfgang von Goethe
