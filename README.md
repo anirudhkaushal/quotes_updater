@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Only I can change my life. No one can do it for me. 
+Quote: To climb steep hills requires a slow pace at first. 
 
-By: Carol Burnett
+By: William Shakespeare
