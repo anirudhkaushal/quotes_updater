@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: They must often change, who would be constant in happiness or wisdom. 
+Quote: There is only one success - to be able to spend your life in your own way. 
 
-By: Confucius
+By: Christopher Morley
