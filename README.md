@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Knowing is not enough; we must apply! 
+Quote: It's supposed to be automatic, but actually you have to push this button. 
 
-By: Johann Wolfgang von Goethe
+By: John Brunner
