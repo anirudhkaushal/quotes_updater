@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What is not started today is never finished tomorrow. 
+Quote: You give before you get. 
 
-By: Johann Wolfgang von Goethe
+By: Napoleon Hill
