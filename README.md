@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm. 
+Quote: Be faithful in small things because it is in them that your strength lies. 
 
-By: Dalai Lama
+By: Mother Teresa
