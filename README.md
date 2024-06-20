@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What other people may find in poetry or art museums, I find in the flight of a good drive. 
+Quote: Courage is not the absence of fear, but simply moving on with dignity despite that fear. 
 
-By: Arnold Palmer
+By: Pat Riley
