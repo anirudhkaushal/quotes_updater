@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship. 
+Quote: What other people may find in poetry or art museums, I find in the flight of a good drive. 
 
-By: Epicurus
+By: Arnold Palmer
