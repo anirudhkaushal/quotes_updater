@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act. 
+Quote: I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder. 
 
 By: G. K. Chesterton
