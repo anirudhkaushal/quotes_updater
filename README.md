@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It's supposed to be automatic, but actually you have to push this button. 
+Quote: I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act. 
 
-By: John Brunner
+By: G. K. Chesterton
