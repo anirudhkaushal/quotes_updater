@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder. 
+Quote: His lack of education is more than compensated for by his keenly developed moral bankruptcy. 
 
-By: G. K. Chesterton
+By: Woody Allen
