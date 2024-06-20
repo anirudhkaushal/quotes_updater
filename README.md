@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: His lack of education is more than compensated for by his keenly developed moral bankruptcy. 
+Quote: Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship. 
 
-By: Woody Allen
+By: Epicurus
