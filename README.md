@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means. 
+Quote: Once you label me you negate me. 
 
-By: Charles Kingsley
+By: Søren Kierkegaard
