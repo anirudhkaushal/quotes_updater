@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Courage is not the absence of fear, but simply moving on with dignity despite that fear. 
+Quote: It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means. 
 
-By: Pat Riley
+By: Charles Kingsley
