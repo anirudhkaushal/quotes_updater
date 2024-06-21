@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Once you label me you negate me. 
+Quote: To avoid criticism, do nothing, say nothing, be nothing. 
 
-By: Søren Kierkegaard
+By: Elbert Hubbard
