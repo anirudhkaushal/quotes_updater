@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Today you are you! That is truer than true! There is no one alive who is you-er than you! 
+Quote: If you do not change direction, you may end up where you are heading. 
 
-By: Dr. Seuss
+By: Laozi
