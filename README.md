@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you do not change direction, you may end up where you are heading. 
+Quote: Miracles come in moments. Be ready and willing. 
 
-By: Laozi
+By: Wayne Dyer
