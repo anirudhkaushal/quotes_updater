@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Miracles come in moments. Be ready and willing. 
+Quote: When something is important enough, you do it even if the odds are not in your favor. 
 
-By: Wayne Dyer
+By: Elon Musk
