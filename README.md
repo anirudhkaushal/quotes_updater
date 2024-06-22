@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. This is your moment. Own it. 
+Quote: I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia. 
 
-By: Oprah Winfrey
+By: Woody Allen
