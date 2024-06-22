@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When something is important enough, you do it even if the odds are not in your favor. 
+Quote: Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. This is your moment. Own it. 
 
-By: Elon Musk
+By: Oprah Winfrey
