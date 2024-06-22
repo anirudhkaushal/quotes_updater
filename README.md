@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia. 
+Quote: One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion. 
 
-By: Woody Allen
+By: Simone de Beauvoir
