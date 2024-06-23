@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Ethics change with technology. 
+Quote: Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently. 
 
-By: Larry Niven
+By: William Arthur Ward
