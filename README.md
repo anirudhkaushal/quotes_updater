@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There's power in looking silly and not caring that you do. 
+Quote: The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary. 
 
-By: Amy Poehler
+By: Thomas Edison
