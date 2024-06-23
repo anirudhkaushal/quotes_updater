@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently. 
+Quote: If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him. 
 
-By: William Arthur Ward
+By: Ralph Waldo Emerson
