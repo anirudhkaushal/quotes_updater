@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Some people go to priests; others to poetry; I to my friends. 
+Quote: A hero is no braver than an ordinary man, but he is braver five minutes longer. 
 
-By: Virginia Woolf
+By: Ralph Waldo Emerson
