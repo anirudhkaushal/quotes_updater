@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We never understand how little we need in this world until we know the loss of it. 
+Quote: Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching. 
 
-By: J. M. Barrie
+By: Satchel Paige
