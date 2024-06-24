@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching. 
+Quote: We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. 
 
-By: Satchel Paige
+By: Uta Hagen
