@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A hero is no braver than an ordinary man, but he is braver five minutes longer. 
+Quote: We never understand how little we need in this world until we know the loss of it. 
 
-By: Ralph Waldo Emerson
+By: J. M. Barrie
