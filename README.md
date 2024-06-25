@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence. 
+Quote: Do not follow where the path may lead. Go, instead, where there is no path and leave a trail. 
 
-By: Confucius
+By: Ralph Waldo Emerson
