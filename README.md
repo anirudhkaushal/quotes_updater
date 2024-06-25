@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Fear makes strangers of people who would be friends. 
+Quote: In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time. 
 
-By: Shirley MacLaine
+By: Leonardo da Vinci
