@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Be sure you put your feet in the right place, then stand firm. 
+Quote: I am a firm believer in the people. If given the truth, they can be depended upon to meet any national crisis. The great point is to bring them the real facts. 
 
 By: Abraham Lincoln
