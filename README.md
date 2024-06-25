@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time. 
+Quote: Be sure you put your feet in the right place, then stand firm. 
 
-By: Leonardo da Vinci
+By: Abraham Lincoln
