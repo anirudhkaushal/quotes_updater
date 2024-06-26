@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life is a learning experience, only if you learn. 
+Quote: The differences between friends cannot but reinforce their friendship. 
 
-By: Yogi Berra
+By: Mao Zedong
