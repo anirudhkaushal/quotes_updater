@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The differences between friends cannot but reinforce their friendship. 
+Quote: Wisdom consists of the anticipation of consequences. 
 
-By: Mao Zedong
+By: Norman Cousins
