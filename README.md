@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Imagination will often carry us to worlds that never were. But without it we go nowhere. 
+Quote: To invent, you need a good imagination and a pile of junk. 
 
-By: Carl Sagan
+By: Thomas Edison
