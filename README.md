@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To invent, you need a good imagination and a pile of junk. 
+Quote: Write your plans in pencil and give God the eraser. 
 
-By: Thomas Edison
+By: Paulo Coelho
