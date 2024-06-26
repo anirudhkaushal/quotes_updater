@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom consists of the anticipation of consequences. 
+Quote: Imagination will often carry us to worlds that never were. But without it we go nowhere. 
 
-By: Norman Cousins
+By: Carl Sagan
