@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He that respects himself is safe from others; he wears a coat of mail that none can pierce. 
+Quote: Strength does not come from physical capacity. It comes from an indomitable will. 
 
-By: Henry Wadsworth Longfellow
+By: Mahatma Gandhi
