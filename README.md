@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When we seek to discover the best in others, we somehow bring out the best in ourselves. 
+Quote: He that respects himself is safe from others; he wears a coat of mail that none can pierce. 
 
-By: William Arthur Ward
+By: Henry Wadsworth Longfellow
