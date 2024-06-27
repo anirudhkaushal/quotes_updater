@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Write your plans in pencil and give God the eraser. 
+Quote: You can only grow if you're willing to feel awkward and uncomfortable when you try something new. 
 
-By: Paulo Coelho
+By: Brian Tracy
