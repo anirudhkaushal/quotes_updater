@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Strength does not come from physical capacity. It comes from an indomitable will. 
+Quote: Lots of people want to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down. 
 
-By: Mahatma Gandhi
+By: Oprah Winfrey
