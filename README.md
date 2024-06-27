@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You can only grow if you're willing to feel awkward and uncomfortable when you try something new. 
+Quote: When we seek to discover the best in others, we somehow bring out the best in ourselves. 
 
-By: Brian Tracy
+By: William Arthur Ward
