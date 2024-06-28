@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Fear not for the future, weep not for the past. 
+Quote: True friendship is like sound health; the value of it is seldom known until it is lost. 
 
-By: Percy Bysshe Shelley
+By: Charles Caleb Colton
