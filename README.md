@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate. 
+Quote: Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind. 
 
-By: Albert Schweitzer
+By: Plato
