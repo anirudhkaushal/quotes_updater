@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind. 
+Quote: It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all. 
 
-By: Plato
+By: Edward de Bono
