@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The greatest remedy for anger is delay. 
+Quote: Love is composed of a single soul inhabiting two bodies. 
 
-By: Seneca the Younger
+By: Aristotle
