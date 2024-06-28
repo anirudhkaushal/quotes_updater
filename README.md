@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: True friendship is like sound health; the value of it is seldom known until it is lost. 
+Quote: The greatest remedy for anger is delay. 
 
-By: Charles Caleb Colton
+By: Seneca the Younger
