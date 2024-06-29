@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our work is the presentation of our capabilities. 
+Quote: Eighty percent of success is showing up. 
 
-By: Edward Gibbon
+By: Woody Allen
