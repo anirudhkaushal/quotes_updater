@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Opportunity is missed by most people because it is dressed in overalls and looks like work. 
+Quote: Trouble is only opportunity in work clothes. 
 
-By: Thomas Edison
+By: Henry J. Kaiser
