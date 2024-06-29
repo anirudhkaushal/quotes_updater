@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Learn from yesterday, live for today, hope for tomorrow. 
+Quote: Our work is the presentation of our capabilities. 
 
-By: Albert Einstein
+By: Edward Gibbon
