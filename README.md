@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Eighty percent of success is showing up. 
+Quote: Opportunity is missed by most people because it is dressed in overalls and looks like work. 
 
-By: Woody Allen
+By: Thomas Edison
