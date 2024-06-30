@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I am always doing that which I cannot do, in order that I may learn how to do it. 
+Quote: He who talks more is sooner exhausted. 
 
-By: Pablo Picasso
+By: Laozi
