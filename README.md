@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away. 
+Quote: Serious sport has nothing to do with fair play. It is bound up with hatred, jealousy, boastfulness, disregard of all rules and sadistic pleasure in witnessing violence. In other words, it is war minus the shooting. 
 
-By: Robert Fulghum
+By: George Orwell
