@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Serious sport has nothing to do with fair play. It is bound up with hatred, jealousy, boastfulness, disregard of all rules and sadistic pleasure in witnessing violence. In other words, it is war minus the shooting. 
+Quote: I am always doing that which I cannot do, in order that I may learn how to do it. 
 
-By: George Orwell
+By: Pablo Picasso
