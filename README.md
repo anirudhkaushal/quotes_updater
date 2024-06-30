@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He who talks more is sooner exhausted. 
+Quote: How wonderful that we have met with a paradox. Now we have some hope of making progress. 
 
-By: Laozi
+By: Niels Bohr
