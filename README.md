@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He who controls others may be powerful, but he who has mastered himself is mightier still. 
+Quote: In the depth of winter, I finally learned that there was within me an invincible summer. 
 
-By: Laozi
+By: Albert Camus
