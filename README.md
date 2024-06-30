@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In the depth of winter, I finally learned that there was within me an invincible summer. 
+Quote: Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away. 
 
-By: Albert Camus
+By: Robert Fulghum
