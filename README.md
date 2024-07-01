@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Change in all things is sweet. 
+Quote: We don't know a millionth of one percent about anything. 
 
-By: Aristotle
+By: Thomas Edison
