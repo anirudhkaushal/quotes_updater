@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest. 
+Quote: Happiness mainly comes from our own attitude, rather than from external factors. 
 
-By: Confucius
+By: Dalai Lama
