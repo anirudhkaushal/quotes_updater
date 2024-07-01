@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: How wonderful that we have met with a paradox. Now we have some hope of making progress. 
+Quote: There is no friendship, no love, like that of the parent for the child. 
 
-By: Niels Bohr
+By: Henry Ward Beecher
