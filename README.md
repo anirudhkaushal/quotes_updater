@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Happiness mainly comes from our own attitude, rather than from external factors. 
+Quote: Change in all things is sweet. 
 
-By: Dalai Lama
+By: Aristotle
