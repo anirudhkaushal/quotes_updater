@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is no friendship, no love, like that of the parent for the child. 
+Quote: When you judge another, you do not define them, you define yourself. 
 
-By: Henry Ward Beecher
+By: Wayne Dyer
