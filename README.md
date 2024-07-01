@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you judge another, you do not define them, you define yourself. 
+Quote: By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest. 
 
-By: Wayne Dyer
+By: Confucius
