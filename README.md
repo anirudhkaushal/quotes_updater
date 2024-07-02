@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To listen well is as powerful a means of communication and influence as to talk well. 
+Quote: The pine stays green in winter... wisdom in hardship. 
 
-By: John Marshall
+By: Norman Douglas
