@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Liberty, taking the word in its concrete sense, consists in the ability to choose. 
+Quote: To listen well is as powerful a means of communication and influence as to talk well. 
 
-By: Simone Weil
+By: John Marshall
