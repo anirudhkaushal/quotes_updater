@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The pine stays green in winter... wisdom in hardship. 
+Quote: Courage is rightly esteemed the first of human qualities... because it is the quality which guarantees all others. 
 
-By: Norman Douglas
+By: Winston Churchill
