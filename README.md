@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We don't know a millionth of one percent about anything. 
+Quote: They blame those who remain silent, they blame those who speak much, they blame those who speak in moderation. There is none in the world who is not blamed. 
 
-By: Thomas Edison
+By: The Buddha
