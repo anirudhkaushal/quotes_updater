@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Courage is rightly esteemed the first of human qualities... because it is the quality which guarantees all others. 
+Quote: Things that were hard to bear are sweet to remember. 
 
-By: Winston Churchill
+By: Seneca the Younger
