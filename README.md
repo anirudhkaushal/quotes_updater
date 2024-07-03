@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There are people who have money and people who are rich. 
+Quote: The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails. 
 
-By: Coco Chanel
+By: William Arthur Ward
