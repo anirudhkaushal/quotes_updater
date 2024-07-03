@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The only real valuable thing is intuition. 
+Quote: The greatest healing therapy is friendship and love. 
 
-By: Albert Einstein
+By: Hubert Humphrey
