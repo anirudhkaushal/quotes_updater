@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The greatest healing therapy is friendship and love. 
+Quote: Through perseverance many people win success out of what seemed destined to be certain failure. 
 
-By: Hubert Humphrey
+By: Benjamin Disraeli
