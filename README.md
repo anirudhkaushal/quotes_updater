@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Things that were hard to bear are sweet to remember. 
+Quote: The only real valuable thing is intuition. 
 
-By: Seneca the Younger
+By: Albert Einstein
