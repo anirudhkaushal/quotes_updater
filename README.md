@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is fatal to enter any war without the will to win it. 
+Quote: There are people who have money and people who are rich. 
 
-By: Douglas MacArthur
+By: Coco Chanel
