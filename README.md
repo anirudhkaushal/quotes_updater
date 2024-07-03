@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Through perseverance many people win success out of what seemed destined to be certain failure. 
+Quote: It is fatal to enter any war without the will to win it. 
 
-By: Benjamin Disraeli
+By: Douglas MacArthur
