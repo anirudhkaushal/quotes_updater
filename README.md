@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Swim upstream. Go the other way. Ignore the conventional wisdom. 
+Quote: Business, you know, may bring you money, but friendship hardly ever does. 
 
-By: Sam Walton
+By: Jane Austen
