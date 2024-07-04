@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Waste no more time arguing about what a good man should be. Be one. 
+Quote: Nothing in life is to be feared. It is only to be understood. 
 
-By: Marcus Aurelius
+By: Marie Curie
