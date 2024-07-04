@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I will prepare and some day my chance will come. 
+Quote: Waste no more time arguing about what a good man should be. Be one. 
 
-By: Abraham Lincoln
+By: Marcus Aurelius
