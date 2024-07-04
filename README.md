@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails. 
+Quote: I will prepare and some day my chance will come. 
 
-By: William Arthur Ward
+By: Abraham Lincoln
