@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Business, you know, may bring you money, but friendship hardly ever does. 
+Quote: One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world. 
 
-By: Jane Austen
+By: Hannah Szenes
