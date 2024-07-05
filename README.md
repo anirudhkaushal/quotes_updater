@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world. 
+Quote: Don't watch the clock; do what it does. Keep going. 
 
-By: Hannah Szenes
+By: Sam Levenson
