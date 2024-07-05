@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Remember that failure is an event, not a person. 
+Quote: If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor. 
 
-By: Zig Ziglar
+By: Daisaku Ikeda
