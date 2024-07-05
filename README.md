@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor. 
+Quote: Love is the master key that opens the gates of happiness. 
 
-By: Daisaku Ikeda
+By: Oliver Wendell Holmes Jr.
