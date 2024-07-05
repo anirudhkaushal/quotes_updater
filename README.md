@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I have friends in overalls whose friendship I would not swap for the favor of the kings of the world. 
+Quote: Remember that failure is an event, not a person. 
 
-By: Thomas Edison
+By: Zig Ziglar
