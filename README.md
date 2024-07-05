@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Don't watch the clock; do what it does. Keep going. 
+Quote: I have friends in overalls whose friendship I would not swap for the favor of the kings of the world. 
 
-By: Sam Levenson
+By: Thomas Edison
