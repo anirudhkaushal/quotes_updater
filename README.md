@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Love is the master key that opens the gates of happiness. 
+Quote: When in doubt, tell the truth. 
 
-By: Oliver Wendell Holmes Jr.
+By: Mark Twain
