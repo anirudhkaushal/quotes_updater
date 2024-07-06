@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I think somehow, we learn who we really are and then live with that decision. 
+Quote: Better than a thousand hollow words, is one word that brings peace. 
 
-By: Eleanor Roosevelt
+By: The Buddha
