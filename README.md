@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Human beings, who are almost unique in having the ability to learn from the experience of others, are also remarkable for their apparent disinclination to do so. 
+Quote: Experience keeps a dear school, but fools will learn in no other. 
 
-By: Douglas Adams
+By: Benjamin Franklin
