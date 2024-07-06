@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time. 
+Quote: I think somehow, we learn who we really are and then live with that decision. 
 
-By: Jim Bouton
+By: Eleanor Roosevelt
