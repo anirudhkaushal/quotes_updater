@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Better than a thousand hollow words, is one word that brings peace. 
+Quote: Human beings, who are almost unique in having the ability to learn from the experience of others, are also remarkable for their apparent disinclination to do so. 
 
-By: The Buddha
+By: Douglas Adams
