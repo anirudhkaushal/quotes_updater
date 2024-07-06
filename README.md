@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When in doubt, tell the truth. 
+Quote: You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time. 
 
-By: Mark Twain
+By: Jim Bouton
