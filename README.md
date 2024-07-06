@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Experience keeps a dear school, but fools will learn in no other. 
+Quote: We do not quit playing because we grow old, we grow old because we quit playing. 
 
-By: Benjamin Franklin
+By: Oliver Wendell Holmes Jr.
