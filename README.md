@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you learn, teach. When you get, give. 
+Quote: Whoever is happy will make others happy, too. 
 
-By: Maya Angelou
+By: Mark Twain
