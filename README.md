@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Whoever is happy will make others happy, too. 
+Quote: The only real valuable thing is intuition. 
 
-By: Mark Twain
+By: Albert Einstein
