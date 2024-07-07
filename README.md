@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A house divided against itself cannot stand. 
+Quote: Character develops itself in the stream of life. 
 
-By: Abraham Lincoln
+By: Johann Wolfgang von Goethe
