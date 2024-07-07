@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The only real valuable thing is intuition. 
+Quote: A house divided against itself cannot stand. 
 
-By: Albert Einstein
+By: Abraham Lincoln
