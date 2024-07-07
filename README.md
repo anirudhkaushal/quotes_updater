@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: We do not quit playing because we grow old, we grow old because we quit playing. 
+Quote: When you learn, teach. When you get, give. 
 
-By: Oliver Wendell Holmes Jr.
+By: Maya Angelou
