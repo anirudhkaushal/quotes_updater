@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Character develops itself in the stream of life. 
+Quote: What do we live for, if it is not to make life less difficult for each other? 
 
-By: Johann Wolfgang von Goethe
+By: George Eliot
