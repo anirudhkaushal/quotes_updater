@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A wise man can learn more from a foolish question than a fool can learn from a wise answer. 
+Quote: Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity. 
 
-By: Bruce Lee
+By: Billie Jean King
