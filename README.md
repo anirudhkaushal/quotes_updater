@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Anticipate the difficult by managing the easy. 
+Quote: Nothing is softer or more flexible than water, yet nothing can resist it. 
 
 By: Laozi
