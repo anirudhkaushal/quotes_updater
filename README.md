@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: What do we live for, if it is not to make life less difficult for each other? 
+Quote: A wise man can learn more from a foolish question than a fool can learn from a wise answer. 
 
-By: George Eliot
+By: Bruce Lee
