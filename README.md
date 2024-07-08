@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is no duty we so underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world. 
+Quote: When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. 
 
-By: Robert Louis Stevenson
+By: Abraham Lincoln
