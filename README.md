@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity. 
+Quote: There is no duty we so underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world. 
 
-By: Billie Jean King
+By: Robert Louis Stevenson
