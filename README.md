@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run. 
+Quote: Anticipate the difficult by managing the easy. 
 
-By: Abraham Lincoln
+By: Laozi
