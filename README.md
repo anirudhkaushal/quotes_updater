@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I believe that every person is born with talent. 
+Quote: One secret of success in life is for a man to be ready for his opportunity when it comes. 
 
-By: Maya Angelou
+By: Benjamin Disraeli
