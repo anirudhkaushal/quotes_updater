@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is only with the heart that one can see rightly, what is essential is invisible to the eye. 
+Quote: Opportunity is missed by most because it is dressed in overalls and looks like work. 
 
-By: Antoine de Saint-Exupéry
+By: Thomas Edison
