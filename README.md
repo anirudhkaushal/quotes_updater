@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Nothing is softer or more flexible than water, yet nothing can resist it. 
+Quote: Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past! 
 
-By: Laozi
+By: Charlotte Perkins Gilman
