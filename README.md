@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: One secret of success in life is for a man to be ready for his opportunity when it comes. 
+Quote: When watching after yourself, you watch after others. When watching after others, you watch after yourself. 
 
-By: Benjamin Disraeli
+By: The Buddha
