@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Opportunity is missed by most because it is dressed in overalls and looks like work. 
+Quote: Fortune favors the brave. 
 
-By: Thomas Edison
+By: Virgil
