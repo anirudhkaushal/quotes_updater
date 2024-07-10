@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident. 
+Quote: Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create. 
 
-By: Charles Lamb
+By: Albert Einstein
