@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: All experiences are preceded by mind, having mind as their master, created by mind. 
+Quote: The truest wisdom is a resolute determination. 
 
-By: The Buddha
+By: Napoleon
