@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create. 
+Quote: Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity. 
 
-By: Albert Einstein
+By: Voltaire
