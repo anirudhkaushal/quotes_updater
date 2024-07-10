@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Fortune favors the brave. 
+Quote: All experiences are preceded by mind, having mind as their master, created by mind. 
 
-By: Virgil
+By: The Buddha
