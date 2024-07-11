@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime. 
+Quote: Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith. 
 
-By: Elisabeth Kübler-Ross
+By: Gordon Hinckley
