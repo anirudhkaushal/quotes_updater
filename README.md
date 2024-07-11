@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith. 
+Quote: Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more 
 
-By: Gordon Hinckley
+By: Tony Robbins
