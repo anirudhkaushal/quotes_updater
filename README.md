@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you have knowledge, let others light their candles in it. 
+Quote: Things do not happen. Things are made to happen. 
 
-By: Margaret Fuller
+By: John F. Kennedy
