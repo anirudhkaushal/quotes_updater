@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity. 
+Quote: I do not know the American gentleman, god forgive me for putting two such words together. 
 
-By: Voltaire
+By: Charles Dickens
