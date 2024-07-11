@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Things do not happen. Things are made to happen. 
+Quote: I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime. 
 
-By: John F. Kennedy
+By: Elisabeth Kübler-Ross
