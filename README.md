@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: I do not know the American gentleman, god forgive me for putting two such words together. 
+Quote: If you have knowledge, let others light their candles in it. 
 
-By: Charles Dickens
+By: Margaret Fuller
