@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There surely is in human nature an inherent propensity to extract all the good out of all the evil. 
+Quote: A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one. 
 
-By: Benjamin Haydon
+By: Chuck Norris
