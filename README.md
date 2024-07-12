@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one. 
+Quote: Trust only movement. Life happens at the level of events, not of words. Trust movement. 
 
-By: Chuck Norris
+By: Alfred Adler
