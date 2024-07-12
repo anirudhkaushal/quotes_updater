@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more 
+Quote: Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots. 
 
-By: Tony Robbins
+By: H. Jackson Brown Jr.
