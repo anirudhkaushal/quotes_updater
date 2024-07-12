@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots. 
+Quote: There surely is in human nature an inherent propensity to extract all the good out of all the evil. 
 
-By: H. Jackson Brown Jr.
+By: Benjamin Haydon
