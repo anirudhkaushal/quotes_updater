@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Trust only movement. Life happens at the level of events, not of words. Trust movement. 
+Quote: The noblest worship is to make yourself as good and as just as you can. 
 
-By: Alfred Adler
+By: Isocrates
