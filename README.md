@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: By living deeply in the present moment we can understand the past better and we can prepare for a better future. 
+Quote: When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps. 
 
-By: Thích Nhất Hạnh
+By: Confucius
