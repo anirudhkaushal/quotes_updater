@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The noblest worship is to make yourself as good and as just as you can. 
+Quote: If you have knowledge, let others light their candles in it. 
 
-By: Isocrates
+By: Margaret Fuller
