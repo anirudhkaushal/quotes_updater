@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us. 
+Quote: By living deeply in the present moment we can understand the past better and we can prepare for a better future. 
 
-By: Helen Keller
+By: Thích Nhất Hạnh
