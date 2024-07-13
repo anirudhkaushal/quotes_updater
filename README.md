@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you have knowledge, let others light their candles in it. 
+Quote: When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us. 
 
-By: Margaret Fuller
+By: Helen Keller
