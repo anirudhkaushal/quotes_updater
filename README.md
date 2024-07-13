@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The key to growth is the introduction of higher dimensions of consciousness into our awareness. 
+Quote: Every artist dips his brush in his own soul, and paints his own nature into his pictures. 
 
-By: Laozi
+By: Henry Ward Beecher
