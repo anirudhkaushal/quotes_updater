@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Every artist dips his brush in his own soul, and paints his own nature into his pictures. 
+Quote: Knowledge rests not upon truth alone, but upon error also. 
 
-By: Henry Ward Beecher
+By: Carl Jung
