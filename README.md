@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do. 
+Quote: You won't skid if you stay in a rut. 
 
-By: Kahlil Gibran
+By: Kin Hubbard
