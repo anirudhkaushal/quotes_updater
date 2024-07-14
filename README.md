@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It always seems impossible until it's done. 
+Quote: Beware of missing chances; otherwise it may be altogether too late someday. 
 
-By: Nelson Mandela
+By: Franz Liszt
