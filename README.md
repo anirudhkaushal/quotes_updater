@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Knowledge rests not upon truth alone, but upon error also. 
+Quote: Genius is one per cent inspiration, ninety-nine per cent perspiration. 
 
-By: Carl Jung
+By: Thomas Edison
