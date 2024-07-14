@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Beware of missing chances; otherwise it may be altogether too late someday. 
+Quote: To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do. 
 
-By: Franz Liszt
+By: Kahlil Gibran
