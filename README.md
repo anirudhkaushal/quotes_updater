@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Genius is one per cent inspiration, ninety-nine per cent perspiration. 
+Quote: It always seems impossible until it's done. 
 
-By: Thomas Edison
+By: Nelson Mandela
