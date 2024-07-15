@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: You can't stop the waves, but you can learn to surf. 
+Quote: Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life. 
 
-By: Jon Kabat-Zinn
+By: Hermann Hesse
