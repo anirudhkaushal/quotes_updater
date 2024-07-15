@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: He who knows others is wise. He who knows himself is enlightened. 
+Quote: In order to win, you must expect to win. 
 
-By: Laozi
+By: Richard Bach
