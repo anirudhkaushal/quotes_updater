@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life. 
+Quote: The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails. 
 
-By: Hermann Hesse
+By: William Arthur Ward
