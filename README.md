@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Wise men talk because they have something to say; fools, because they have to say something. 
+Quote: The World is my country, all mankind are my brethren, and to do good is my religion. 
 
-By: Plato
+By: Thomas Paine
