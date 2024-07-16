@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The World is my country, all mankind are my brethren, and to do good is my religion. 
+Quote: TV and the Internet are good because they keep stupid people from spending too much time out in public. 
 
-By: Thomas Paine
+By: Douglas Coupland
