@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: It is with words as with sunbeams. The more they are condensed, the deeper they burn. 
+Quote: Wise men talk because they have something to say; fools, because they have to say something. 
 
-By: Robert Southey
+By: Plato
