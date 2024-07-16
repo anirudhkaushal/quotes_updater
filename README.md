@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Gratitude is riches. Complaint is poverty. 
+Quote: It is with words as with sunbeams. The more they are condensed, the deeper they burn. 
 
-By: Doris Day
+By: Robert Southey
