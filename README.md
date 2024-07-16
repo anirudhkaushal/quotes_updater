@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: In order to win, you must expect to win. 
+Quote: The sum of wisdom is that time is never lost that is devoted to work. 
 
-By: Richard Bach
+By: Ralph Waldo Emerson
