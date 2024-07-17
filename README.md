@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The greatest remedy for anger is delay. 
+Quote: The place to improve the world is first in one's own heart and head and hands. 
 
-By: Seneca the Younger
+By: Robert M. Pirsig
