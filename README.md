@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: TV and the Internet are good because they keep stupid people from spending too much time out in public. 
+Quote: There is nothing so useless as doing efficiently that which should not be done at all. 
 
-By: Douglas Coupland
+By: Peter Drucker
