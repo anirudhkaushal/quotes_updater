@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: If you are out to describe the truth, leave elegance to the tailor. 
+Quote: Those who dare to fail miserably can achieve greatly. 
 
-By: Albert Einstein
+By: John F. Kennedy
