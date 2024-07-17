@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: There is nothing so useless as doing efficiently that which should not be done at all. 
+Quote: To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best. 
 
-By: Peter Drucker
+By: Margaret Thatcher
