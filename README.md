@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: Those who dare to fail miserably can achieve greatly. 
+Quote: The greatest remedy for anger is delay. 
 
-By: John F. Kennedy
+By: Seneca the Younger
