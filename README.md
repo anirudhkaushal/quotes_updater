@@ -1,5 +1,5 @@
 # Latest quote 
 
-Quote: The place to improve the world is first in one's own heart and head and hands. 
+Quote: If you have one true friend, you have more than your share. 
 
-By: Robert M. Pirsig
+By: Thomas Fuller
